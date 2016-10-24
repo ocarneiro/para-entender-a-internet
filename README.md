@@ -10,7 +10,7 @@ Sinta-se à vontade para contribuir com pull requests!
 
 ## BIRL (Bambam bodybuilder)
 
-Bambam, participante do Big Brother Brasil (BBB) fez um vídeo malhando e falando muitos palavrões:
+Bambam, participante do Big Brother Brasil (BBB) edição 1 de 2002, fez um vídeo malhando e falando muitos palavrões:
 
 https://www.youtube.com/watch?v=zwvsa7DzzHY
 
