@@ -34,8 +34,11 @@ Se te convidarem para jantar e tomar um vinho, cuidado, Marilene!
 ## Serjão Berranteiro, matador de onça
 
 [![Onça](http://img.youtube.com/vi/OjYRjpgdLeI/0.jpg)](http://www.youtube.com/watch?v=OjYRjpgdLeI)
-https://www.youtube.com/watch?v=OjYRjpgdLeI
 
 ## O Rei do Elogio
 
 https://www.youtube.com/watch?v=6rrCGsecJrk
+
+## Melhor grupo do Brasil - Carreta Furacão
+
+[![Siga_em_Frente](https://i.ytimg.com/vi/tmJ0tzAZ4aM/hqdefault.jpg)](https://www.youtube.com/watch?v=tmJ0tzAZ4aM)
