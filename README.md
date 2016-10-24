@@ -36,3 +36,7 @@ https://www.youtube.com/watch?v=z7-ZYXpJ_EU
 ## Serjão Berranteiro, matador de onça
 
 https://www.youtube.com/watch?v=OjYRjpgdLeI
+
+## O Rei do Elogio
+
+https://www.youtube.com/watch?v=6rrCGsecJrk
