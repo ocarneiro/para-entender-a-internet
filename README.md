@@ -47,6 +47,12 @@ https://www.youtube.com/watch?v=6rrCGsecJrk
 
 [![Ja acabou Jessica?](https://i2.wp.com/falaele.com.br/wp-content/uploads/2017/01/jessica-9.jpg)](https://www.youtube.com/watch?v=d7FK4fAsx9k)
 
+## E o bambú?
+
+Silvio Santos às vezes abria o programa para participação de pessoas da platéia. Uma vez uma menina pediu para contar uma piada e a piada era de baixo calão.
+
+[![E o bambú?](https://www.youtube.com/watch?v=7Nkvvo4RvGw)](https://www.youtube.com/watch?v=7Nkvvo4RvGw)
+
 ## Bed intruder song
 
 [![BedIntruder](http://i.ytimg.com/vi/Xj0osUxCd-I/maxresdefault.jpg)](//www.youtube.com/watch?v=hMtZfW2z9dw&t=17s)
