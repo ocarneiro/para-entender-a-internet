@@ -53,6 +53,15 @@ Silvio Santos às vezes abria o programa para participação de pessoas da plat�
 
 [![E o bambú?](https://www.youtube.com/watch?v=7Nkvvo4RvGw)](https://www.youtube.com/watch?v=7Nkvvo4RvGw)
 
+## Gretchen rainha dos memes
+
+Conheça Gretchen, Rainhas dos memes da internet brasileira
+
+[![Gretchen rainha dos memes](https://www.altoastral.com.br/wp-content/uploads/2016/08/gretchen-gifs-meme.jpg)](https://www.youtube.com/watch?v=QLOcGaqDByw)
+
 ## Bed intruder song
 
 [![BedIntruder](http://i.ytimg.com/vi/Xj0osUxCd-I/maxresdefault.jpg)](//www.youtube.com/watch?v=hMtZfW2z9dw&t=17s)
+
+
+
