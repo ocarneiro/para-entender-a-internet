@@ -55,4 +55,4 @@ Silvio Santos às vezes abria o programa para participação de pessoas da plat�
 
 ## Bed intruder song
 
-[![BedIntruder](http://i.ytimg.com/vi/Xj0osUxCd-I/maxresdefault.jpg)](//www.youtube.com/watch?v=hMtZfW2z9dw&t=17s)
+[![BedIntruder](http://i.ytimg.com/vi/Xj0osUxCd-I/hqdefault.jpg)](//www.youtube.com/watch?v=hMtZfW2z9dw&t=17s)
