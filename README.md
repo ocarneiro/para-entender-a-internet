@@ -43,9 +43,9 @@ https://www.youtube.com/watch?v=6rrCGsecJrk
 
 [![Siga_em_Frente](https://i.ytimg.com/vi/tmJ0tzAZ4aM/hqdefault.jpg)](https://www.youtube.com/watch?v=tmJ0tzAZ4aM)
 
-## Já acabou Jessica ? #hacktoberfest
+## Já acabou, Jéssica?
 
-[![Ja acabou Jessica?](https://i2.wp.com/falaele.com.br/wp-content/uploads/2017/01/jessica-9.jpg)](https://www.youtube.com/watch?v=d7FK4fAsx9k)
+[![Ja acabou Jessica?](https://i.ytimg.com/vi/E40xwYKlZHo/hqdefault.jpg)](https://www.youtube.com/watch?v=E40xwYKlZHo)
 
 ## E o bambú?
 
