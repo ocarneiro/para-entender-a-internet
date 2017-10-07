@@ -37,7 +37,7 @@ Se te convidarem para jantar e tomar um vinho, cuidado, Marilene!
 
 ## O Rei do Elogio
 
-https://www.youtube.com/watch?v=6rrCGsecJrk
+[![O Rei do Elogio](http://img.youtube.com/vi/6rrCGsecJrk/0.jpg)](https://www.youtube.com/watch?v=6rrCGsecJrk)
 
 ## Melhor grupo do Brasil - Carreta Furacão
 
