@@ -34,3 +34,25 @@ Se te convidarem para jantar e tomar um vinho, cuidado, Marilene!
 ## Serjão Berranteiro, matador de onça
 
 [![Onça](http://img.youtube.com/vi/OjYRjpgdLeI/0.jpg)](http://www.youtube.com/watch?v=OjYRjpgdLeI)
+
+## O Rei do Elogio
+
+https://www.youtube.com/watch?v=6rrCGsecJrk
+
+## Melhor grupo do Brasil - Carreta Furacão
+
+[![Siga_em_Frente](https://i.ytimg.com/vi/tmJ0tzAZ4aM/hqdefault.jpg)](https://www.youtube.com/watch?v=tmJ0tzAZ4aM)
+
+## Já acabou, Jéssica?
+
+[![Ja acabou Jessica?](https://i.ytimg.com/vi/E40xwYKlZHo/hqdefault.jpg)](https://www.youtube.com/watch?v=E40xwYKlZHo)
+
+## E o bambú?
+
+Silvio Santos às vezes abria o programa para participação de pessoas da platéia. Uma vez uma menina pediu para contar uma piada e a piada era de baixo calão.
+
+[![E o bambú?](https://www.youtube.com/watch?v=7Nkvvo4RvGw)](https://www.youtube.com/watch?v=7Nkvvo4RvGw)
+
+## Bed intruder song
+
+[![BedIntruder](http://i.ytimg.com/vi/Xj0osUxCd-I/maxresdefault.jpg)](//www.youtube.com/watch?v=hMtZfW2z9dw&t=17s)
