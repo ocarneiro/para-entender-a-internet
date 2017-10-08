@@ -64,3 +64,7 @@ Oriúndo do animê Hokuto no ken(1983), viralizou nos segundo semestre de 2017. 
  
 [![## Omae wa mou shindeiru! Nani??](http://img.youtube.com/vi/YSgpU70MZno/0.jpg)](http://www.youtube.com/watch?v=YSgpU70MZno)
 
+## Você disse after?
+
+Edição especial Pybr13!
+[Imgur](https://i.imgur.com/vvCrui1.gifv)
