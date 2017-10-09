@@ -64,3 +64,9 @@ Oriúndo do animê Hokuto no ken(1983), viralizou nos segundo semestre de 2017. 
  
 [![## Omae wa mou shindeiru! Nani??](http://img.youtube.com/vi/YSgpU70MZno/0.jpg)](http://www.youtube.com/watch?v=YSgpU70MZno)
 
+
+## Chloe com uma cara de quem chupou um limão bem azedo.
+
+Sua Tia Ló dando limão para Chloe experimentar.
+
+[![## Chloe chupando limão](http://img.youtube.com/vi/rkcP3xNWlU8/0.jpg)](https://www.youtube.com/watch?v=rkcP3xNWlU8)
