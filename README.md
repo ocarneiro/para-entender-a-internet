@@ -64,3 +64,11 @@ Oriúndo do animê Hokuto no ken(1983), viralizou nos segundo semestre de 2017. 
  
 [![## Omae wa mou shindeiru! Nani??](http://img.youtube.com/vi/YSgpU70MZno/0.jpg)](http://www.youtube.com/watch?v=YSgpU70MZno)
 
+
+## Xuxa - Aham Cláudia, Senta lá.
+
+Xuxa a rainha dos baixinhos pedindo "educadamente" para uma baichinha chamada Cláudia se sentar
+
+[![## Chloe chupando limão](http://img.youtube.com/vi/0ruAD9TSchI/0.jpg)](https://www.youtube.com/watch?v=0ruAD9TSchI)
+
+
