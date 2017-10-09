@@ -43,9 +43,9 @@ https://www.youtube.com/watch?v=6rrCGsecJrk
 
 [![Siga_em_Frente](https://i.ytimg.com/vi/tmJ0tzAZ4aM/hqdefault.jpg)](https://www.youtube.com/watch?v=tmJ0tzAZ4aM)
 
-## Já acabou Jessica ? #hacktoberfest
+## Já acabou, Jéssica?
 
-[![Ja acabou Jessica?](https://i2.wp.com/falaele.com.br/wp-content/uploads/2017/01/jessica-9.jpg)](https://www.youtube.com/watch?v=d7FK4fAsx9k)
+[![Ja acabou Jessica?](https://i.ytimg.com/vi/E40xwYKlZHo/hqdefault.jpg)](https://www.youtube.com/watch?v=E40xwYKlZHo)
 
 ## E o bambú?
 
@@ -64,4 +64,9 @@ Conheça Gretchen, Rainhas dos memes da internet brasileira
 [![BedIntruder](http://i.ytimg.com/vi/Xj0osUxCd-I/maxresdefault.jpg)](//www.youtube.com/watch?v=hMtZfW2z9dw&t=17s)
 
 
+## Omae wa mou shindeiru! Nani??
+
+Oriúndo do animê Hokuto no ken(1983), viralizou nos segundo semestre de 2017. É usado quando alguém aplica um golpe ( verbal ou fisico ) em outro de forma arrasadora. A tradução é " você já está morto! O que?? "
+ 
+[![## Omae wa mou shindeiru! Nani??](http://img.youtube.com/vi/YSgpU70MZno/0.jpg)](http://www.youtube.com/watch?v=YSgpU70MZno)
 
