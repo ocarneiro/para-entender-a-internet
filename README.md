@@ -68,3 +68,16 @@ Oriúndo do animê Hokuto no ken(1983), viralizou nos segundo semestre de 2017. 
 ## Melody e sua amiga diva do falsete mostrando cultura para o Brasil
  
 [![## Omae wa mou shindeiru! Nani??](http://img.youtube.com/vi/-Ln9Zn1dObI/0.jpg)](https://www.youtube.com/watch?v=-Ln9Zn1dObI)
+
+## Estou sentindo uma treta!
+
+[![Treta](https://www.youtube.com/watch?v=g6kmlpNH_nI)](https://www.youtube.com/watch?v=g6kmlpNH_nI)
+
+
+## Mamilos são muito polemicos
+
+Bate papo sobre um tema extremamente polemico: Mamilos
+
+[![Mamilos](https://www.youtube.com/watch?v=vtJFJbtqUd8)](https://www.youtube.com/watch?v=vtJFJbtqUd8)
+
+
