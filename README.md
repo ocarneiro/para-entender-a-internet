@@ -67,3 +67,8 @@ Oriúndo do animê Hokuto no ken(1983), viralizou nos segundo semestre de 2017. 
 ## Ai que susto!
 
 [![## Omae wa mou shindeiru! Nani??](http://img.youtube.com/vi/JDz3wuapS_s/0.jpg)](http://www.youtube.com/watch?v=JDz3wuapS_s)
+
+
+## Melody e sua amiga diva do falsete mostrando cultura para o Brasil
+ 
+[![## Omae wa mou shindeiru! Nani??](http://img.youtube.com/vi/-Ln9Zn1dObI/0.jpg)](https://www.youtube.com/watch?v=-Ln9Zn1dObI)
