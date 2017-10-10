@@ -37,7 +37,7 @@ Se te convidarem para jantar e tomar um vinho, cuidado, Marilene!
 
 ## O Rei do Elogio
 
-https://www.youtube.com/watch?v=6rrCGsecJrk
+[![O Rei do Elogio](https://i.ytimg.com/vi/K6lO1rfW6F8/hqdefault.jpg)](https://www.youtube.com/watch?v=6rrCGsecJrk)
 
 ## Melhor grupo do Brasil - Carreta Furacão
 
@@ -51,7 +51,7 @@ https://www.youtube.com/watch?v=6rrCGsecJrk
 
 Silvio Santos às vezes abria o programa para participação de pessoas da platéia. Uma vez uma menina pediu para contar uma piada e a piada era de baixo calão.
 
-[![E o bambú?](https://www.youtube.com/watch?v=7Nkvvo4RvGw)](https://www.youtube.com/watch?v=7Nkvvo4RvGw)
+[![E o bambú?](https://i.ytimg.com/vi/_NcE8L_glxY/hqdefault.jpg)](https://www.youtube.com/watch?v=7Nkvvo4RvGw)
 
 ## Gretchen rainha dos memes
 
