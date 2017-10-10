@@ -67,4 +67,4 @@ Oriúndo do animê Hokuto no ken(1983), viralizou nos segundo semestre de 2017. 
 ## Você disse after?
 
 Edição especial Pybr13!
-[Imgur](https://i.imgur.com/vvCrui1.gifv)
+![after](https://i.imgur.com/SHHbwl0.gif)
