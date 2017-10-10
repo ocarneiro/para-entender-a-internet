@@ -64,3 +64,6 @@ Oriúndo do animê Hokuto no ken(1983), viralizou nos segundo semestre de 2017. 
  
 [![## Omae wa mou shindeiru! Nani??](http://img.youtube.com/vi/YSgpU70MZno/0.jpg)](http://www.youtube.com/watch?v=YSgpU70MZno)
 
+## Ai que susto!
+
+[![## Omae wa mou shindeiru! Nani??](http://img.youtube.com/vi/JDz3wuapS_s/0.jpg)](http://www.youtube.com/watch?v=JDz3wuapS_s)
