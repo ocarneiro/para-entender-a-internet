@@ -55,7 +55,7 @@ Silvio Santos às vezes abria o programa para participação de pessoas da plat�
 
 ## Gretchen rainha dos memes
 
-Conheça Gretchen, Rainhas dos memes da internet brasileira
+Conheça Gretchen, Rainha dos memes da internet brasileira
 
 [![Gretchen rainha dos memes](https://www.altoastral.com.br/wp-content/uploads/2016/08/gretchen-gifs-meme.jpg)](https://www.youtube.com/watch?v=QLOcGaqDByw)
 
