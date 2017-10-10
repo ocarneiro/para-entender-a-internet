@@ -71,13 +71,14 @@ Oriúndo do animê Hokuto no ken(1983), viralizou nos segundo semestre de 2017. 
 
 ## Estou sentindo uma treta!
 
-[![Treta](https://www.youtube.com/watch?v=g6kmlpNH_nI)](https://www.youtube.com/watch?v=g6kmlpNH_nI)
+[![Treta](https://img.youtube.com/vi/g6kmlpNH_nI/0.jpg)](https://www.youtube.com/watch?v=g6kmlpNH_nI)
 
 
 ## Mamilos são muito polemicos
 
 Bate papo sobre um tema extremamente polemico: Mamilos
 
-[![Mamilos](https://www.youtube.com/watch?v=vtJFJbtqUd8)](https://www.youtube.com/watch?v=vtJFJbtqUd8)
+[![Mamilos](https://img.youtube.com/vi/vtJFJbtqUd8/0.jpg)](https://www.youtube.com/watch?v=vtJFJbtqUd8)
+
 
 
