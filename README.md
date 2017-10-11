@@ -7,6 +7,8 @@ Seus problemas acabaram! Neste repositório você encontrará as referências qu
 
 Sinta-se à vontade para contribuir com pull requests!
 
+Tem dúvidas? [Como contribuir.](#como-contribuir)
+
 
 ## BIRL (Bambam bodybuilder)
 
@@ -78,3 +80,14 @@ Oriúndo do animê Hokuto no ken(1983), viralizou nos segundo semestre de 2017. 
 
 Edição especial Pybr13!
 ![after](https://i.imgur.com/SHHbwl0.gif)
+
+# Como contribuir
+
+Clique em `README.md` para abrir este arquivo.
+
+Clique no lápis para entrar em modo de edição. Repare no formato correto de cada meme:
+```
+[![Descrição da imagem de preview](link da imagem de preview)](link do vídeo)
+```
+
+Faça as edições desejadas e clique em `Propose file change` para enviar a solicitação de atualização do arquivo no repositório original.
