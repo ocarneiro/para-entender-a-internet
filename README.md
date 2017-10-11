@@ -81,19 +81,21 @@ Oriúndo do animê Hokuto no ken(1983), viralizou nos segundo semestre de 2017. 
 Edição especial Pybr13!
 ![after](https://i.imgur.com/SHHbwl0.gif)
 
+---
+
 # Como contribuir
 
-Clique em `README.md` para abrir este arquivo.
+__Clique em `README.md` para abrir este arquivo.__
 
 ![Passo 1](imgs/passo1.png)
 
-Clique no lápis para entrar em modo de edição. Repare no formato correto de cada meme:
+__Clique no lápis para entrar em modo de edição. Repare no formato correto de cada meme:__
 ```
 [![Descrição da imagem de preview](link da imagem de preview)](link do vídeo)
 ```
 ![Passo 2](imgs/passo2.png)
 
-Faça as edições desejadas e clique em `Propose file change` para enviar a solicitação de atualização do arquivo no repositório original.
+__Faça as edições desejadas e clique em `Propose file change` para enviar a solicitação de atualização do arquivo no repositório original.__
 
 ![Passo 3](imgs/passo3.png)
 
