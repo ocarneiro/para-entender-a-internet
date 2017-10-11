@@ -85,15 +85,15 @@ Edição especial Pybr13!
 
 Clique em `README.md` para abrir este arquivo.
 
-[![Passo 1](imgs/passo1.png)
+![Passo 1](imgs/passo1.png)
 
 Clique no lápis para entrar em modo de edição. Repare no formato correto de cada meme:
 ```
 [![Descrição da imagem de preview](link da imagem de preview)](link do vídeo)
 ```
-[![Passo 2](imgs/passo2.png)
+![Passo 2](imgs/passo2.png)
 
 Faça as edições desejadas e clique em `Propose file change` para enviar a solicitação de atualização do arquivo no repositório original.
 
-[![Passo 3](imgs/passo3.png)
+![Passo 3](imgs/passo3.png)
 
