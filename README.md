@@ -85,17 +85,18 @@ Edição especial Pybr13!
 
 # Como contribuir
 
-__Clique em `README.md` para abrir este arquivo.__
+__1: Clique em `README.md` para abrir este arquivo.__
 
 ![Passo 1](imgs/passo1.png)
 
-__Clique no lápis para entrar em modo de edição. Repare no formato correto de cada meme:__
+__2: Clique no lápis para entrar em modo de edição. Repare no formato correto de cada meme:__
 ```
 [![Descrição da imagem de preview](link da imagem de preview)](link do vídeo)
 ```
 ![Passo 2](imgs/passo2.png)
 
-__Faça as edições desejadas e clique em `Propose file change` para enviar a solicitação de atualização do arquivo no repositório original.__
+__3: Faça as edições desejadas e clique em `Propose file change` para enviar a solicitação de atualização do arquivo no repositório original.__
 
 ![Passo 3](imgs/passo3.png)
 
+__4: Envie o Pull Request__
