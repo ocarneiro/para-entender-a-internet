@@ -11,7 +11,7 @@ Sinta-se à vontade para contribuir com pull requests!
 
 ÉÉÉÉÉ!!! QUERO CAFÉ!! QUERO CAFÉÉÉ!!!
 
-[![BIRL](http://img.youtube.com/vi/VxRpkfcXEpA/0.jpg)](https://www.youtube.com/watch?v=VxRpkfcXEpA)
+[![QUERO CAFÉ](http://img.youtube.com/vi/VxRpkfcXEpA/0.jpg)](https://www.youtube.com/watch?v=VxRpkfcXEpA)
 
 ## BIRL (Bambam bodybuilder)
 
