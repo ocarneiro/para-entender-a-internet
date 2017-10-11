@@ -37,7 +37,7 @@ Se te convidarem para jantar e tomar um vinho, cuidado, Marilene!
 
 ## O Rei do Elogio
 
-https://www.youtube.com/watch?v=6rrCGsecJrk
+[![O Rei do Elogio](https://i.ytimg.com/vi/K6lO1rfW6F8/hqdefault.jpg)](https://www.youtube.com/watch?v=6rrCGsecJrk)
 
 ## Melhor grupo do Brasil - Carreta Furacão
 
@@ -51,7 +51,13 @@ https://www.youtube.com/watch?v=6rrCGsecJrk
 
 Silvio Santos às vezes abria o programa para participação de pessoas da platéia. Uma vez uma menina pediu para contar uma piada e a piada era de baixo calão.
 
-[![E o bambú?](https://www.youtube.com/watch?v=7Nkvvo4RvGw)](https://www.youtube.com/watch?v=7Nkvvo4RvGw)
+[![E o bambú?](https://i.ytimg.com/vi/_NcE8L_glxY/hqdefault.jpg)](https://www.youtube.com/watch?v=7Nkvvo4RvGw)
+
+## Gretchen rainha dos memes
+
+Conheça Gretchen, Rainha dos memes da internet brasileira
+
+[![Gretchen rainha dos memes](https://www.altoastral.com.br/wp-content/uploads/2016/08/gretchen-gifs-meme.jpg)](https://www.youtube.com/watch?v=QLOcGaqDByw)
 
 ## Bed intruder song
 
@@ -64,10 +70,10 @@ Oriúndo do animê Hokuto no ken(1983), viralizou nos segundo semestre de 2017. 
  
 [![## Omae wa mou shindeiru! Nani??](http://img.youtube.com/vi/YSgpU70MZno/0.jpg)](http://www.youtube.com/watch?v=YSgpU70MZno)
 
-
 ## Melody e sua amiga diva do falsete mostrando cultura para o Brasil
  
 [![## Omae wa mou shindeiru! Nani??](http://img.youtube.com/vi/-Ln9Zn1dObI/0.jpg)](https://www.youtube.com/watch?v=-Ln9Zn1dObI)
+
 
 ## Estou sentindo uma treta!
 
@@ -81,4 +87,7 @@ Bate papo sobre um tema extremamente polemico: Mamilos
 [![Mamilos](https://img.youtube.com/vi/vtJFJbtqUd8/0.jpg)](https://www.youtube.com/watch?v=vtJFJbtqUd8)
 
 
+## Você disse after?
 
+Edição especial Pybr13!
+![after](https://i.imgur.com/SHHbwl0.gif)
