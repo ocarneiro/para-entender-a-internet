@@ -8,6 +8,12 @@ Seus problemas acabaram! Neste repositório você encontrará as referências qu
 Sinta-se à vontade para contribuir com pull requests!
 
 
+## Menina Isabela
+
+A menina Isabela, revoltada ao saber que seu pai havia fechado a porta cobra explicações sobre o fato
+
+[![Menina Isabela](http://img.youtube.com/vi/hPYf951wQ1M/0.jpg)](https://www.youtube.com/watch?v=hPYf951wQ1M)
+
 ## BIRL (Bambam bodybuilder)
 
 Bambam, participante do Big Brother Brasil (BBB) edição 1 de 2002, fez um vídeo malhando e falando muitos palavrões:
@@ -67,11 +73,11 @@ Conheça Gretchen, Rainha dos memes da internet brasileira
 ## Omae wa mou shindeiru! Nani??
 
 Oriúndo do animê Hokuto no ken(1983), viralizou nos segundo semestre de 2017. É usado quando alguém aplica um golpe ( verbal ou fisico ) em outro de forma arrasadora. A tradução é " você já está morto! O que?? "
- 
+
 [![## Omae wa mou shindeiru! Nani??](http://img.youtube.com/vi/YSgpU70MZno/0.jpg)](http://www.youtube.com/watch?v=YSgpU70MZno)
 
 ## Melody e sua amiga diva do falsete mostrando cultura para o Brasil
- 
+
 [![## Omae wa mou shindeiru! Nani??](http://img.youtube.com/vi/-Ln9Zn1dObI/0.jpg)](https://www.youtube.com/watch?v=-Ln9Zn1dObI)
 
 ## Você disse after?
