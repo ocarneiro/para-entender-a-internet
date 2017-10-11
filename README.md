@@ -11,7 +11,7 @@ Sinta-se à vontade para contribuir com pull requests!
 
 O jogador Marin é surpreendido ao saber que está fora do próximo jogo
 
-[![BIRL](http://img.youtube.com/vi/diyqckphh3E/0.jpg)](https://www.youtube.com/watch?v=diyqckphh3E)
+[![Que merda hein? Sabia não](http://img.youtube.com/vi/diyqckphh3E/0.jpg)](https://www.youtube.com/watch?v=diyqckphh3E)
 
 ## BIRL (Bambam bodybuilder)
 
