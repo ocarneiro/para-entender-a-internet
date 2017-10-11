@@ -78,3 +78,7 @@ Oriúndo do animê Hokuto no ken(1983), viralizou nos segundo semestre de 2017. 
 
 Edição especial Pybr13!
 ![after](https://i.imgur.com/SHHbwl0.gif)
+
+## Felipe? Smith? Faz isso comigu não velho! Guarapari búzios é minha arte
+ 
+[![Felipe Smith](http://img.youtube.com/vi/R-ihQbr4zGU/0.jpg)](https://www.youtube.com/watch?v=R-ihQbr4zGU&t)
