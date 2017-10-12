@@ -67,14 +67,23 @@ Conheça Gretchen, Rainha dos memes da internet brasileira
 ## Omae wa mou shindeiru! Nani??
 
 Oriúndo do animê Hokuto no ken(1983), viralizou nos segundo semestre de 2017. É usado quando alguém aplica um golpe ( verbal ou fisico ) em outro de forma arrasadora. A tradução é " você já está morto! O que?? "
- 
+
 [![## Omae wa mou shindeiru! Nani??](http://img.youtube.com/vi/YSgpU70MZno/0.jpg)](http://www.youtube.com/watch?v=YSgpU70MZno)
 
 ## Melody e sua amiga diva do falsete mostrando cultura para o Brasil
- 
+
 [![## Omae wa mou shindeiru! Nani??](http://img.youtube.com/vi/-Ln9Zn1dObI/0.jpg)](https://www.youtube.com/watch?v=-Ln9Zn1dObI)
 
 ## Você disse after?
 
 Edição especial Pybr13!
 ![after](https://i.imgur.com/SHHbwl0.gif)
+
+## Para ficar feliz nós bebemos muito café! é café, eu quero!
+[![## é Café eu quero café! isso aqui tá uma porcaria!](https://www.youtube.com/watch?v=VxRpkfcXEpA)]
+
+## O importante é não deixar o forninho cair!
+[![## Eita giovanaaaa!](https://www.youtube.com/watch?v=U5P3raTyKKA)]
+
+## Já acabou, Jéssica?
+[![## Já acabou, Jéssica?](https://www.youtube.com/watch?v=gSZj5O2St6U)]
