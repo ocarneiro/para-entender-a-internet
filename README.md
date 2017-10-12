@@ -80,10 +80,7 @@ Edição especial Pybr13!
 ![after](https://i.imgur.com/SHHbwl0.gif)
 
 ## Para ficar feliz nós bebemos muito café! é café, eu quero!
-[![## é Café eu quero café! isso aqui tá uma porcaria!](https://www.youtube.com/watch?v=VxRpkfcXEpA)]
+[![## é Café eu quero café! isso aqui tá uma porcaria!](https://i.ytimg.com/vi/VxRpkfcXEpA/hqdefault.jpg)(https://www.youtube.com/watch?v=VxRpkfcXEpA)]
 
 ## O importante é não deixar o forninho cair!
-[![## Eita giovanaaaa!](https://www.youtube.com/watch?v=U5P3raTyKKA)]
-
-## Já acabou, Jéssica?
-[![## Já acabou, Jéssica?](https://www.youtube.com/watch?v=gSZj5O2St6U)]
+[![## Eita giovanaaaa!](https://i.ytimg.com/vi/U5P3raTyKKA/hqdefault.jpg)(https://www.youtube.com/watch?v=U5P3raTyKKA)]
