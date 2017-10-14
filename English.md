@@ -12,4 +12,4 @@ you can contribute with pull requests!
 
 Confused Travolta is an animated GIF series featuring a cutout of actor John Travolta in the 1994 black comedy crime film Pulp Fiction edited into other base images of various contexts.
 
-[![Confused Travolta](http://knowyourmeme.com/photos/1042619)](http://knowyourmeme.com/memes/confused-travolta)
+[![Confused Travolta](http://i0.kym-cdn.com/photos/images/original/001/042/619/4ea.jpg)](http://knowyourmeme.com/memes/confused-travolta)
