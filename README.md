@@ -139,3 +139,30 @@ Edição especial Pybr13!
 Xuxa a rainha dos baixinhos pedindo "educadamente" para uma baixinha chamada Cláudia se sentar
 
 [![aham claudia](http://img.youtube.com/vi/0ruAD9TSchI/0.jpg)](https://www.youtube.com/watch?v=0ruAD9TSchI)
+
+
+## David after the dentist 
+
+David ficou muito filosófico após ir ao dentista
+
+![https://images.duckduckgo.com/iu/?u=http%3A%2F%2Fwww.inboundstrategy.com%2Fwp-content%2Fuploads%2F2011%2F02%2FDavidAfterDentist.jpeg&f=1]https://www.youtube.com/watch?v=6ZFp-oYAbzk&index=21&list=PLvI7RDRu4mMdKSc5GoGRaF0y9se5roHNr&t=3s)
+
+
+## Sabe o que eu quero Mário Alberto?
+
+![https://images.duckduckgo.com/iu/?u=http%3A%2F%2Fimg.youtube.com%2Fvi%2F6EYmKAs7mzc%2F0.jpg&f=1](https://www.youtube.com/watch?v=6EYmKAs7mzc&index=22&list=PLvI7RDRu4mMdKSc5GoGRaF0y9se5roHNr)
+
+
+## Never say no to a panda!
+
+![https://images.duckduckgo.com/iu/?u=https%3A%2F%2Ftse4.mm.bing.net%2Fth%3Fid%3DOIP.Y6DcDY7P2llj3hDr2pK-5QEzDL%26pid%3D15.1&f=1](https://www.youtube.com/watch?v=X21mJh6j9i4&index=4&list=PLvI7RDRu4mMdKSc5GoGRaF0y9se5roHNr)
+
+## Gay men will marry your girlfriends
+
+![https://images.duckduckgo.com/iu/?u=https%3A%2F%2Ftse2.mm.bing.net%2Fth%3Fid%3DOIP.5msShWj3vhMCi67XYR0ePwEqDR%26pid%3D15.1&f=1](https://www.youtube.com/watch?v=X-YCdcnf_P8&index=20&list=PLvI7RDRu4mMdKSc5GoGRaF0y9se5roHNr)
+
+## Filho da mãe
+
+Vou te contar uma história sobre seu pai. Seu pai era um homem muito feio.
+
+![https://images.duckduckgo.com/iu/?u=https%3A%2F%2Fi.ytimg.com%2Fvi%2FNDyo43kbtA8%2Fhqdefault.jpg&f=1](https://i.ytimg.com/vi/NDyo43kbtA8/hqdefault.jpg?sqp=-oaymwEXCPYBEIoBSFryq4qpAwkIARUAAIhCGAE=&rs=AOn4CLBZiik-IWXwpzOk8o8aX86LTinI9w)
