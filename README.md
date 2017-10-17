@@ -37,7 +37,9 @@ Se te convidarem para jantar e tomar um vinho, cuidado, Marilene!
 
 ## O Rei do Elogio
 
-[![O Rei do Elogio](https://i.ytimg.com/vi/K6lO1rfW6F8/hqdefault.jpg)](https://www.youtube.com/watch?v=6rrCGsecJrk)
+
+[![O Rei do Elogio](http://img.youtube.com/vi/6rrCGsecJrk/0.jpg)](https://www.youtube.com/watch?v=6rrCGsecJrk)
+
 
 ## Melhor grupo do Brasil - Carreta Furacão
 
@@ -45,23 +47,27 @@ Se te convidarem para jantar e tomar um vinho, cuidado, Marilene!
 
 ## Já acabou, Jéssica?
 
-[![Ja acabou Jessica?](https://i.ytimg.com/vi/E40xwYKlZHo/hqdefault.jpg)](https://www.youtube.com/watch?v=E40xwYKlZHo)
+
+[![Ja acabou Jessica?](http://img.youtube.com/vi/d7FK4fAsx9k/0.jpg)](https://www.youtube.com/watch?v=d7FK4fAsx9k)
+
 
 ## E o bambú?
 
 Silvio Santos às vezes abria o programa para participação de pessoas da platéia. Uma vez uma menina pediu para contar uma piada e a piada era de baixo calão.
 
-[![E o bambú?](https://i.ytimg.com/vi/_NcE8L_glxY/hqdefault.jpg)](https://www.youtube.com/watch?v=7Nkvvo4RvGw)
+
+[![E o bambú?](http://img.youtube.com/vi/7Nkvvo4RvGw/0.jpg)](https://www.youtube.com/watch?v=7Nkvvo4RvGw)
+
+## Bed intruder song
+
+[![BedIntruder](http://i.ytimg.com/vi/Xj0osUxCd-I/hqdefault.jpg)](//www.youtube.com/watch?v=hMtZfW2z9dw&t=17s)
+
 
 ## Gretchen rainha dos memes
 
 Conheça Gretchen, Rainha dos memes da internet brasileira
 
 [![Gretchen rainha dos memes](https://www.altoastral.com.br/wp-content/uploads/2016/08/gretchen-gifs-meme.jpg)](https://www.youtube.com/watch?v=QLOcGaqDByw)
-
-## Bed intruder song
-
-[![BedIntruder](http://i.ytimg.com/vi/Xj0osUxCd-I/maxresdefault.jpg)](//www.youtube.com/watch?v=hMtZfW2z9dw&t=17s)
 
 
 ## Tava ruim, agora parece que piorou
@@ -85,4 +91,3 @@ Oriúndo do animê Hokuto no ken(1983), viralizou nos segundo semestre de 2017. 
 
 Edição especial Pybr13!
 ![after](https://i.imgur.com/SHHbwl0.gif)
-
