@@ -40,7 +40,9 @@ Se te convidarem para jantar e tomar um vinho, cuidado, Marilene!
 
 ## O Rei do Elogio
 
-https://www.youtube.com/watch?v=6rrCGsecJrk
+
+[![O Rei do Elogio](http://img.youtube.com/vi/6rrCGsecJrk/0.jpg)](https://www.youtube.com/watch?v=6rrCGsecJrk)
+
 
 
 ## Melhor grupo do Brasil - Carreta Furacão
@@ -53,6 +55,7 @@ https://www.youtube.com/watch?v=6rrCGsecJrk
 [![Ja acabou Jessica?](http://pa1.narvii.com/6541/4c4abe735f3a38dd67bec505d4e89761fd95f942_hq.gif)](https://www.youtube.com/watch?v=E40xwYKlZHo)
 
 
+
 ## E o bambú?
 
 Silvio Santos às vezes abria o programa para participação de pessoas da platéia. Uma vez uma menina pediu para contar uma piada e a piada era de baixo calão.
@@ -63,6 +66,21 @@ Silvio Santos às vezes abria o programa para participação de pessoas da plat�
 ## Bed intruder song
 
 [![BedIntruder](https://thumbs.gfycat.com/EntireUnhappyCondor-small.gif)](//www.youtube.com/watch?v=hMtZfW2z9dw&t=17s)
+
+
+## Gretchen rainha dos memes
+
+Conheça Gretchen, Rainha dos memes da internet brasileira
+
+[![Gretchen rainha dos memes](https://www.altoastral.com.br/wp-content/uploads/2016/08/gretchen-gifs-meme.jpg)](https://www.youtube.com/watch?v=QLOcGaqDByw)
+
+
+## Tava ruim, agora parece que piorou
+
+Dava pra melhor com certeza, quer dizer que ia mudar melhor, já tava bom, disse que ia mudar pra melhor, não tava muito bom, tava meio ruim também, tava ruim, agora parece que piorou.﻿
+
+[![Tava ruim, agora parece que piorou](https://i.ytimg.com/vi/VX3lz5ph8A0/hqdefault.jpg)](//www.youtube.com/watch?v=VX3lz5ph8A0)
+
 
 
 ## Omae wa mou shindeiru! Nani??
@@ -93,3 +111,11 @@ e morreu!
 [![e morreu!](http://pa1.narvii.com/6532/f5684277ae6a9fadaccdcddd68ace49cd8516a32_hq.gif)](https://www.youtube.com/watch?v=kMbcgxUeYkc)
 
 
+## Melody e sua amiga diva do falsete mostrando cultura para o Brasil
+ 
+[![## Omae wa mou shindeiru! Nani??](http://img.youtube.com/vi/-Ln9Zn1dObI/0.jpg)](https://www.youtube.com/watch?v=-Ln9Zn1dObI)
+
+## Você disse after?
+
+Edição especial Pybr13!
+![after](https://i.imgur.com/SHHbwl0.gif)
