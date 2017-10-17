@@ -96,6 +96,12 @@ Será mesmo que você conhece cada passo desse chão? Seriado famoso nos anos 20
 
 [![É uma cilada Bino!](http://www.assimpassei.com.br/wp-content/uploads/2014/04/bino.gif)](https://www.youtube.com/watch?v=86WRiqOTf4M)
 
+## Deus é top!
+
+Craque nos campos e no Twitter, Neymar deixa mensagens valiosas para nós e outros seres também!
+
+[![Deus é Top!](https://pbs.twimg.com/media/C0zM2yDXAAUgeuW.jpg)](http://blog.chicorei.com/neymar/)
+
 
 ## Nazaré Confusa!
 
@@ -112,7 +118,7 @@ e morreu!
 
 
 ## Melody e sua amiga diva do falsete mostrando cultura para o Brasil
- 
+
 [![## Omae wa mou shindeiru! Nani??](http://img.youtube.com/vi/-Ln9Zn1dObI/0.jpg)](https://www.youtube.com/watch?v=-Ln9Zn1dObI)
 
 
