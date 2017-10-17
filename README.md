@@ -69,10 +69,6 @@ Conheça Gretchen, Rainha dos memes da internet brasileira
 
 [![Gretchen rainha dos memes](https://www.altoastral.com.br/wp-content/uploads/2016/08/gretchen-gifs-meme.jpg)](https://www.youtube.com/watch?v=QLOcGaqDByw)
 
-## Bed intruder song
-
-[![BedIntruder](http://i.ytimg.com/vi/Xj0osUxCd-I/maxresdefault.jpg)](//www.youtube.com/watch?v=hMtZfW2z9dw&t=17s)
-
 
 ## Tava ruim, agora parece que piorou
 
