@@ -7,6 +7,8 @@ Seus problemas acabaram! Neste repositório você encontrará as referências qu
 
 Sinta-se à vontade para contribuir com pull requests!
 
+Tem dúvidas? [Como contribuir.](#como-contribuir)
+
 
 ## BIRL (Bambam bodybuilder)
 
@@ -119,3 +121,23 @@ e morreu!
 
 Edição especial Pybr13!
 ![after](https://i.imgur.com/SHHbwl0.gif)
+
+---
+
+# Como contribuir
+
+__1: Clique em `README.md` para abrir este arquivo.__
+
+![Passo 1](imgs/passo1.png)
+
+__2: Clique no lápis para entrar em modo de edição. Repare no formato correto de cada meme:__
+```
+[![Descrição da imagem de preview](link da imagem de preview)](link do vídeo)
+```
+![Passo 2](imgs/passo2.png)
+
+__3: Faça as edições desejadas e clique em `Propose file change` para enviar a solicitação de atualização do arquivo no repositório original.__
+
+![Passo 3](imgs/passo3.png)
+
+__4: Envie o Pull Request__
