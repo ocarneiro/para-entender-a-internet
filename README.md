@@ -115,6 +115,19 @@ e morreu!
  
 [![## Omae wa mou shindeiru! Nani??](http://img.youtube.com/vi/-Ln9Zn1dObI/0.jpg)](https://www.youtube.com/watch?v=-Ln9Zn1dObI)
 
+
+## Estou sentindo uma treta!
+
+[![Treta](https://img.youtube.com/vi/g6kmlpNH_nI/0.jpg)](https://www.youtube.com/watch?v=g6kmlpNH_nI)
+
+
+## Mamilos são muito polemicos
+
+Bate papo sobre um tema extremamente polemico: Mamilos
+
+[![Mamilos](https://img.youtube.com/vi/vtJFJbtqUd8/0.jpg)](https://www.youtube.com/watch?v=vtJFJbtqUd8)
+
+
 ## Você disse after?
 
 Edição especial Pybr13!
