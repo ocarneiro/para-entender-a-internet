@@ -118,4 +118,11 @@ e morreu!
 ## Você disse after?
 
 Edição especial Pybr13!
+
 ![after](https://i.imgur.com/SHHbwl0.gif)
+
+## Xuxa - Aham Cláudia, Senta lá.
+
+Xuxa a rainha dos baixinhos pedindo "educadamente" para uma baixinha chamada Cláudia se sentar
+
+[![aham claudia](http://img.youtube.com/vi/0ruAD9TSchI/0.jpg)](https://www.youtube.com/watch?v=0ruAD9TSchI)
