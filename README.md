@@ -115,6 +115,9 @@ e morreu!
  
 [![## Omae wa mou shindeiru! Nani??](http://img.youtube.com/vi/-Ln9Zn1dObI/0.jpg)](https://www.youtube.com/watch?v=-Ln9Zn1dObI)
 
+## Aham Claúdia, senta lá
+[![Meme Claúdia]](https://www.meme4fun.com/images/858b4baa-1644-4379-9cb6-f7f9d7a23181.jpg)(https://www.youtube.com/watch?v=peaI4yiKBnM)
+
 ## Você disse after?
 
 Edição especial Pybr13!
