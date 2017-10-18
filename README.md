@@ -128,6 +128,19 @@ Bate papo sobre um tema extremamente polemico: Mamilos
 [![Mamilos](http://img.ibxk.com.br/2016/09/21/21131648732209.gif)](https://www.youtube.com/watch?v=vtJFJbtqUd8)
 
 
+
+## Estou sentindo uma treta!
+
+[![Treta](https://img.youtube.com/vi/g6kmlpNH_nI/0.jpg)](https://www.youtube.com/watch?v=g6kmlpNH_nI)
+
+
+## Mamilos são muito polemicos
+
+Bate papo sobre um tema extremamente polemico: Mamilos
+
+[![Mamilos](https://img.youtube.com/vi/vtJFJbtqUd8/0.jpg)](https://www.youtube.com/watch?v=vtJFJbtqUd8)
+
+
 ## Você disse after?
 
 Edição especial Pybr13!
@@ -137,7 +150,6 @@ Edição especial Pybr13!
 ## Xuxa - Aham Cláudia, Senta lá.
 
 Xuxa a rainha dos baixinhos pedindo "educadamente" para uma baixinha chamada Cláudia se sentar
-
 [![aham claudia](https://media.tenor.com/images/06bca210ad526a345122b9284c5b5436/tenor.gif)](https://www.youtube.com/watch?v=0ruAD9TSchI)
 
 ## Como você é burro cara!
@@ -163,6 +175,4 @@ Nos galhos secos de uma árvore qualquer!
 Eu sou Nissim, Nissim Ourfaaaalii!! 
 
 [![Eu sou nissim!](http://media.virgula.com.br/images/2014/08/20/4138894012-meme-do-nissin-orfali.gif)](https://www.youtube.com/watch?v=NhkR44GIjQQ)
-
-
 
