@@ -144,4 +144,4 @@ Xuxa a rainha dos baixinhos pedindo "educadamente" para uma baixinha chamada Cl�
 
 Quando a pessoa está em uma situação mas não ta entendendo nada.
 
-[!travolta](https://media.giphy.com/media/gngO1gmBhS9na/giphy.gif)
+[![travolta](https://media.giphy.com/media/gngO1gmBhS9na/giphy.gif)
