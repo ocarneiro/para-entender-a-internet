@@ -113,8 +113,15 @@ e morreu!
 
 ## Melody e sua amiga diva do falsete mostrando cultura para o Brasil
  
-[![## Omae wa mou shindeiru! Nani??](http://img.youtube.com/vi/-Ln9Zn1dObI/0.jpg)](https://www.youtube.com/watch?v=-Ln9Zn1dObI)
+[![## Melody e diva do falset](http://img.youtube.com/vi/-Ln9Zn1dObI/0.jpg)](https://www.youtube.com/watch?v=-Ln9Zn1dObI)
 
+## Side Eyeing Chloe
+
+O meme ficou famoso após os pais de duas irmãs fazerem uma surpresa para elas, dizendo que iam levá-as à Disney. Lilly de descabela de felicidade e Chloe parece não se importar muito.
+
+O meme é um "curinga" e é usado para expressar diversas reações desde um "sério mesmo que você fez isso?" até um  "isso não teve graça..."
+
+[![## Side Eyeing Chloe](http://i0.kym-cdn.com/entries/icons/mobile/000/014/285/sideeyechloe.jpg)](https://www.youtube.com/watch?v=NGhuLkjl4iI)
 
 ## Estou sentindo uma treta!
 
