@@ -139,3 +139,9 @@ Edição especial Pybr13!
 Xuxa a rainha dos baixinhos pedindo "educadamente" para uma baixinha chamada Cláudia se sentar
 
 [![aham claudia](http://img.youtube.com/vi/0ruAD9TSchI/0.jpg)](https://www.youtube.com/watch?v=0ruAD9TSchI)
+
+## John Travolta em Pulp Fiction.
+
+Quando a pessoa está em uma situação mas não ta entendendo nada.
+
+[!travolta](https://media.giphy.com/media/gngO1gmBhS9na/giphy.gif)
