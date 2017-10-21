@@ -154,3 +154,10 @@ Xuxa a rainha dos baixinhos pedindo "educadamente" para uma baixinha chamada Cl�
 Para os saudosistas da internet
 
 ![tudo mato](https://4.bp.blogspot.com/-KpuHkgKInpI/VtmrI1TrILI/AAAAAAAAHPI/H0HsIU1ddoI/s1600/TUDO%2BMATO.jpg)
+
+## Vitas
+
+![Vitas](https://media.giphy.com/media/8j1JQbvRr49nq/giphy.gif)
+
+Para entender a magia deste letão (que canta em russo) é preciso ouvir sua famosa canção [7th element](https://www.youtube.com/watch?v=PWmfNeLs7fA).
+Ficou famoso no Brasil principalmente através da página America South Memes.
