@@ -72,14 +72,14 @@ Silvio Santos às vezes abria o programa para participação de pessoas da plat�
 
 Conheça Gretchen, Rainha dos memes da internet brasileira
 
-[![Gretchen rainha dos memes](https://www.altoastral.com.br/wp-content/uploads/2016/08/gretchen-gifs-meme.jpg)](https://www.youtube.com/watch?v=QLOcGaqDByw)
+[![Gretchen rainha dos memes](https://faesadigital.files.wordpress.com/2017/07/giphy4.gif?w=1200)](https://www.youtube.com/watch?v=QLOcGaqDByw)
 
 
 ## Tava ruim, agora parece que piorou
 
 Dava pra melhor com certeza, quer dizer que ia mudar melhor, já tava bom, disse que ia mudar pra melhor, não tava muito bom, tava meio ruim também, tava ruim, agora parece que piorou.﻿
 
-[![Tava ruim, agora parece que piorou](https://i.ytimg.com/vi/VX3lz5ph8A0/hqdefault.jpg)](//www.youtube.com/watch?v=VX3lz5ph8A0)
+[![Tava ruim, agora parece que piorou](https://i.makeagif.com/media/5-20-2015/41-jmq.gif)](//www.youtube.com/watch?v=VX3lz5ph8A0)
 
 
 
@@ -125,14 +125,14 @@ O meme é um "curinga" e é usado para expressar diversas reações desde um "s�
 
 ## Estou sentindo uma treta!
 
-[![Treta](https://img.youtube.com/vi/g6kmlpNH_nI/0.jpg)](https://www.youtube.com/watch?v=g6kmlpNH_nI)
+[![Treta](https://thumbs.gfycat.com/EnlightenedSpiritedGibbon-size_restricted.gif)](https://www.youtube.com/watch?v=g6kmlpNH_nI)
 
 
 ## Mamilos são muito polemicos
 
 Bate papo sobre um tema extremamente polemico: Mamilos
 
-[![Mamilos](https://img.youtube.com/vi/vtJFJbtqUd8/0.jpg)](https://www.youtube.com/watch?v=vtJFJbtqUd8)
+[![Mamilos](http://img.ibxk.com.br/2016/09/21/21131648732209.gif)](https://www.youtube.com/watch?v=vtJFJbtqUd8)
 
 
 ## Você disse after?
@@ -152,8 +152,7 @@ O forninho caiuuu!!
 
 Xuxa a rainha dos baixinhos pedindo "educadamente" para uma baixinha chamada Cláudia se sentar
 
-[![aham claudia](http://img.youtube.com/vi/0ruAD9TSchI/0.jpg)](https://www.youtube.com/watch?v=0ruAD9TSchI)
-
+[![aham claudia](https://media.tenor.com/images/06bca210ad526a345122b9284c5b5436/tenor.gif)](https://www.youtube.com/watch?v=0ruAD9TSchI)
 
 ## Antigamente isso aqui era tudo mato
 
@@ -227,3 +226,22 @@ O jogador Marin é surpreendido ao saber que está fora do próximo jogo
 Craque nos campos e no Twitter, Neymar deixa mensagens valiosas para nós e outros seres também!
 
 [![Deus é Top!](https://pbs.twimg.com/media/C0zM2yDXAAUgeuW.jpg)](http://blog.chicorei.com/neymar/)
+
+## Como você é burro cara!
+
+Nunca fale uma coisa idiota perto do Caetano!
+
+[![Como você é burro cara!](http://ak-hdl.buzzfed.com/static/2015-03/31/11/imagebuzz/webdr10/anigif_optimized-21589-1427816506-6.gif)](https://www.youtube.com/watch?v=lOxSDaTfujU)
+
+
+## Para noossssaaaa alegriaaa!!!
+
+Nos galhos secos de uma árvore qualquer!
+
+[![Para nooooooooossaaa alegria!](http://media.virgula.com.br/images/2014/08/20/3759201498-o-meme-para-nossa-alegria.gif)](https://www.youtube.com/watch?v=2OlVfm-kGfU)
+
+## Nissim Ourfali
+
+Eu sou Nissim, Nissim Ourfaaaalii!! 
+
+[![Eu sou nissim!](http://media.virgula.com.br/images/2014/08/20/4138894012-meme-do-nissin-orfali.gif)](https://www.youtube.com/watch?v=NhkR44GIjQQ)
