@@ -22,3 +22,9 @@ Seus problemas acabaram! Neste repositório você encontrará as referências qu
 ## [E o bambú?](pt_br/bambu)
 
 ## [Bed intruder song](pt_br/bed_intruder)
+
+## [Gretchen rainha dos memes](pt_br/gretchen)
+
+## [Tava ruim, agora parece que piorou](pt_br/tava_ruim)
+
+## [Omae wa mou shindeiru! Nani??](pt_br/omae)
