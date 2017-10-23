@@ -220,3 +220,10 @@ Mais uma figura de programas políciais que ficou muito famosa quando aqui na in
 O jogador Marin é surpreendido ao saber que está fora do próximo jogo
 
 [![Que merda hein? Sabia não](http://img.youtube.com/vi/diyqckphh3E/0.jpg)](https://www.youtube.com/watch?v=diyqckphh3E)
+
+
+## Deus é top!
+
+Craque nos campos e no Twitter, Neymar deixa mensagens valiosas para nós e outros seres também!
+
+[![Deus é Top!](https://pbs.twimg.com/media/C0zM2yDXAAUgeuW.jpg)](http://blog.chicorei.com/neymar/)
