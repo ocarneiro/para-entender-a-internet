@@ -152,7 +152,6 @@ O forninho caiuuu!!
 
 Xuxa a rainha dos baixinhos pedindo "educadamente" para uma baixinha chamada Cláudia se sentar
 
-
 [![aham claudia](https://media.tenor.com/images/06bca210ad526a345122b9284c5b5436/tenor.gif)](https://www.youtube.com/watch?v=0ruAD9TSchI)
 
 ## Antigamente isso aqui era tudo mato
@@ -258,3 +257,9 @@ Com o primeiro pico de buscas no Google em 2008, o *King Size* do Rio de Janeiro
 [![Kingsize de Niterói](http://images.uncyc.org/pt/9/99/Kingsizedorj.PNG)](https://www.youtube.com/watch?v=7tLFbUKVrUo)
 
 E saiba mais sobre essa família tão importante na [enciclopédia](http://desciclopedia.org/wiki/King_Size_do_Rio_de_Janeiro).
+
+## John Travolta em Pulp Fiction.
+
+Quando a pessoa está em uma situação mas não ta entendendo nada.
+
+[![travolta](https://media.giphy.com/media/gngO1gmBhS9na/giphy.gif)
