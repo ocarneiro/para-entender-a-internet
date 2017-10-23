@@ -208,3 +208,9 @@ Hermes e Renato é provavelmente o maior concentrador de falas e expressões de 
 Mais uma figura de programas políciais que ficou muito famosa quando aqui na internet era tudo mato!
 
 [![Jeremias muito louco](http://img.youtube.com/vi/87xcp4FeQSI/0.jpg)](https://www.youtube.com/watch?v=87xcp4FeQSI)
+
+## Que merda hein? Sabia não
+
+O jogador Marin é surpreendido ao saber que está fora do próximo jogo
+
+[![Que merda hein? Sabia não](http://img.youtube.com/vi/diyqckphh3E/0.jpg)](https://www.youtube.com/watch?v=diyqckphh3E)
