@@ -87,7 +87,8 @@ Dava pra melhor com certeza, quer dizer que ia mudar melhor, já tava bom, disse
 
 Oriúndo do animê Hokuto no ken(1983), viralizou nos segundo semestre de 2017. É usado quando alguém aplica um golpe ( verbal ou fisico ) em outro de forma arrasadora. A tradução é " você já está morto! O que?? "
 
-[![## Omae wa mou shindeiru! Nani??](https://otakuposmoderno.files.wordpress.com/2017/04/rdvwim.gif)](http://www.youtube.com/watch?v=YSgpU70MZno)
+[![## Omae wa mou shindeiru! Nani??](http://img.youtube.com/vi/YSgpU70MZno/0.jpg)](http://www.youtube.com/watch?v=YSgpU70MZno)
+
 
 ## É uma cilada Bino!
 
@@ -178,3 +179,10 @@ Detalhe que a letra estava na sua frente e ela estava usando óculos!!!!
 
 No respira...
 [![## Rodolfo](http://img.youtube.com/vi/ac7qqiXlfNg/0.jpg)](https://www.youtube.com/watch?v=ac7qqiXlfNg)
+
+
+## Menina Isabela
+
+A menina Isabela, revoltada ao saber que seu pai havia fechado a porta cobra explicações sobre o fato
+
+[![Menina Isabela](http://img.youtube.com/vi/hPYf951wQ1M/0.jpg)](https://www.youtube.com/watch?v=hPYf951wQ1M)
