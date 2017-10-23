@@ -245,3 +245,7 @@ Nos galhos secos de uma árvore qualquer!
 Eu sou Nissim, Nissim Ourfaaaalii!! 
 
 [![Eu sou nissim!](http://media.virgula.com.br/images/2014/08/20/4138894012-meme-do-nissin-orfali.gif)](https://www.youtube.com/watch?v=NhkR44GIjQQ)
+
+## Tulla luana - Seguindo a diva no Instagram
+
+[![Menina mulher](https://i.ytimg.com/vi/iJq5QCLiCL0/maxresdefault.jpg)](https://www.youtube.com/watch?v=8zXUkljYsn0)
