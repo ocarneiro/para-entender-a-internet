@@ -16,3 +16,9 @@ Seus problemas acabaram! Neste repositório você encontrará as referências qu
 ## [O Rei do Elogio](pt_br/rei_do_elogio)
 
 ## [Melhor grupo do Brasil - Carreta Furacão](pt_br/carreta_furacao)
+
+## [Já acabou, Jéssica?](pt_br/acabou_jessica)
+
+## [E o bambú?](pt_br/bambu)
+
+## [Bed intruder song](pt_br/bed_intruder)
