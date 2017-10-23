@@ -10,3 +10,9 @@ Seus problemas acabaram! Neste repositório você encontrará as referências qu
 ## [Fazer humanas e viver da arte, fazer miçangas](pt_br/humanas)
 
 ## [Tainha, vinho...](pt_br/tainha)
+
+## [Serjão Berranteiro, matador de onça](pt_br/serjao)
+
+## [O Rei do Elogio](pt_br/rei_do_elogio)
+
+## [Melhor grupo do Brasil - Carreta Furacão](pt_br/carreta_furacao)
