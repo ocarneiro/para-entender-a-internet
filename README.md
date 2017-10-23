@@ -89,7 +89,6 @@ Oriúndo do animê Hokuto no ken(1983), viralizou nos segundo semestre de 2017. 
 
 [![## Omae wa mou shindeiru! Nani??](https://otakuposmoderno.files.wordpress.com/2017/04/rdvwim.gif)](http://www.youtube.com/watch?v=YSgpU70MZno)
 
-
 ## É uma cilada Bino!
 
 Será mesmo que você conhece cada passo desse chão? Seriado famoso nos anos 2000, nos maravilhou com esse incrível meme! Salve grande Carga pesada!
@@ -154,3 +153,13 @@ Xuxa a rainha dos baixinhos pedindo "educadamente" para uma baixinha chamada Cl�
 Para os saudosistas da internet
 
 ![tudo mato](https://4.bp.blogspot.com/-KpuHkgKInpI/VtmrI1TrILI/AAAAAAAAHPI/H0HsIU1ddoI/s1600/TUDO%2BMATO.jpg)
+
+
+## Cachorro? Que cachorro o que!
+
+Marcio canuto, famoso reporter brasileiro, entrevista garotinho que fica nervoso ao achar que foi chamado de cachorro!
+
+- e você pequenininho, quando ver um dinossauro tão grande que que se achou???
+- cachorro? Que cachorro oque? Eu não sou cachorro não...!!﻿
+
+[![## Cachorro? Que cachorro o que! Não sou cachorro não](http://img.youtube.com/vi/YvwEdt5CBQo/0.jpg)](https://www.youtube.com/watch?v=YvwEdt5CBQo)
