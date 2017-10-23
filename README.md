@@ -7,6 +7,7 @@ Seus problemas acabaram! Neste repositório você encontrará as referências qu
 
 Sinta-se à vontade para contribuir com pull requests!
 
+
 ## BIRL (Bambam bodybuilder)
 
 Bambam, participante do Big Brother Brasil (BBB) edição 1 de 2002, fez um vídeo malhando e falando muitos palavrões:
@@ -201,3 +202,9 @@ Hermes e Renato é provavelmente o maior concentrador de falas e expressões de 
 ## Morre diabo!
 
 [![Morre diabo](http://img.youtube.com/vi/dAuE92NvuXU/0.jpg)](https://www.youtube.com/watch?v=dAuE92NvuXU)
+
+## Jeremias muito louco!
+
+Mais uma figura de programas políciais que ficou muito famosa quando aqui na internet era tudo mato!
+
+[![Jeremias muito louco](http://img.youtube.com/vi/87xcp4FeQSI/0.jpg)](https://www.youtube.com/watch?v=87xcp4FeQSI)
