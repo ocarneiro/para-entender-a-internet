@@ -268,4 +268,4 @@ Quando a pessoa está em uma situação mas não ta entendendo nada.
 
 Excelente ministração do pastor sobre como os fiéis devem lavar o cu.
 
-[![E o bambú?](https://i.ytimg.com/vi/p7jyJ9YpsgE/hqdefault.jpg)](https://www.youtube.com/watch?v=ny1xNZdvMw4)
+[![Tem raiva do cu?](https://i.ytimg.com/vi/p7jyJ9YpsgE/hqdefault.jpg)](https://www.youtube.com/watch?v=ny1xNZdvMw4)
