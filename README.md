@@ -263,3 +263,9 @@ E saiba mais sobre essa família tão importante na [enciclopédia](http://desci
 Quando a pessoa está em uma situação mas não ta entendendo nada.
 
 [![travolta](https://media.giphy.com/media/gngO1gmBhS9na/giphy.gif)
+
+## Tem raiva do cu?
+
+Excelente ministração do pastor sobre como os fiéis devem lavar o cu.
+
+[![E o bambú?](https://i.ytimg.com/vi/p7jyJ9YpsgE/hqdefault.jpg)](https://www.youtube.com/watch?v=ny1xNZdvMw4)
