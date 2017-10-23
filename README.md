@@ -172,3 +172,9 @@ No Primeiro Encontro Estadual de Agentes Públicos em março de 2009, na Assembl
 Detalhe que a letra estava na sua frente e ela estava usando óculos!!!!
 
 [![## Vanusa canta o hino nacional](http://img.youtube.com/vi/6w9MpztV4gk/0.jpg)](https://www.youtube.com/watch?v=6w9MpztV4gk)
+
+
+## Rodolfo!
+
+No respira...
+[![## Rodolfo](http://img.youtube.com/vi/ac7qqiXlfNg/0.jpg)](https://www.youtube.com/watch?v=ac7qqiXlfNg)
