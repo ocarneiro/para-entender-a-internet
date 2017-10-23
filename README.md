@@ -262,4 +262,10 @@ E saiba mais sobre essa família tão importante na [enciclopédia](http://desci
 
 Quando a pessoa está em uma situação mas não ta entendendo nada.
 
-[![travolta](https://media.giphy.com/media/gngO1gmBhS9na/giphy.gif)
+[![travolta](https://media.giphy.com/media/gngO1gmBhS9na/giphy.gif)]
+
+## Serjão Berranteiro
+
+Serjão 'Matador de Onça' ficou famoso por seu jeito/sotaque e principalmente a sua imitação do berro da onça.
+
+[![Serjao Berranteiro](https://i.makeagif.com/media/11-11-2015/-4roMn.gif)](https://www.youtube.com/watch?v=AcekWw-swgo)
