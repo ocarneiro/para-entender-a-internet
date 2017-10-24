@@ -267,3 +267,9 @@ Quando a pessoa está em uma situação mas não ta entendendo nada.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+
+## Felipe? Smith? Faz isso comigu não velho! Guarapari búzios é minha arte
+
+Guarapari Búzios é minha arte!
+
+[![Felipe Smith](http://img.youtube.com/vi/R-ihQbr4zGU/0.jpg)](https://www.youtube.com/watch?v=R-ihQbr4zGU&t)
