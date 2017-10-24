@@ -14,7 +14,6 @@ Bambam, participante do Big Brother Brasil (BBB) edição 1 de 2002, fez um víd
 
 [![BIRL](https://img.buzzfeed.com/buzzfeed-static/static/2016-05/31/12/asset/buzzfeed-prod-web14/anigif_sub-buzz-4076-1464711500-10.gif)](http://www.youtube.com/watch?v=zwvsa7DzzHY)
 
-
 ## Fazer humanas e viver da arte, fazer miçangas
 
 Milena perdeu a prova do Enem porque não pôde ver o sol. Ela gostaria de viver da arte que faz com as coisas que a natureza nos dá...
@@ -80,7 +79,6 @@ Conheça Gretchen, Rainha dos memes da internet brasileira
 Dava pra melhor com certeza, quer dizer que ia mudar melhor, já tava bom, disse que ia mudar pra melhor, não tava muito bom, tava meio ruim também, tava ruim, agora parece que piorou.﻿
 
 [![Tava ruim, agora parece que piorou](https://i.makeagif.com/media/5-20-2015/41-jmq.gif)](//www.youtube.com/watch?v=VX3lz5ph8A0)
-
 
 
 ## Omae wa mou shindeiru! Nani??
@@ -242,7 +240,7 @@ Nos galhos secos de uma árvore qualquer!
 
 ## Nissim Ourfali
 
-Eu sou Nissim, Nissim Ourfaaaalii!! 
+Eu sou Nissim, Nissim Ourfaaaalii!!
 
 [![Eu sou nissim!](http://media.virgula.com.br/images/2014/08/20/4138894012-meme-do-nissin-orfali.gif)](https://www.youtube.com/watch?v=NhkR44GIjQQ)
 
@@ -263,3 +261,9 @@ E saiba mais sobre essa família tão importante na [enciclopédia](http://desci
 Quando a pessoa está em uma situação mas não ta entendendo nada.
 
 [![travolta](https://media.giphy.com/media/gngO1gmBhS9na/giphy.gif)
+
+## Bora fechar?
+
+Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
+
+[![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
