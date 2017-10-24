@@ -49,6 +49,12 @@ Pai de Família é um meme de um ator pornô gay brasileiro.
 
 [![Pai de família](http://img.youtube.com/vi/Lu0l5h-Yoqc/0.jpg)](https://www.youtube.com/watch?v=Lu0l5h-Yoqc)
 
+## Você pita? não? bão, eu pito muito!!!
+
+O contrabandista de cigarros mais cara de pau e cômico que já se viu. 
+
+[![Você pita?](http://img.youtube.com/vi/os-JrX8N6MQ)](https://www.youtube.com/watch?v=os-JrX8N6MQ)
+
 ## Melhor grupo do Brasil - Carreta Furacão
 
 [![Siga_em_Frente](https://www.fatosdesconhecidos.com.br/wp-content/uploads/2016/04/2cncoxk.gif)](https://www.youtube.com/watch?v=tmJ0tzAZ4aM)
