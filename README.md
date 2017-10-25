@@ -273,3 +273,9 @@ Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 ZA WARUDO!, ou THE WORLD! É um golpe criado pelo vampiro Dio Brando que possui o poder de paralisar o tempo.
 
 [![Za Warudo](http://img.youtube.com/vi/s7wzJ6EJdvY/0.jpg)](https://www.youtube.com/watch?v=s7wzJ6EJdvY&t)
+
+## Yes - Roundabout / To Be Continued...
+
+Meme baseado no cliffhanger usado ao fim de episodios do anime Jojo’s Bizarre Adventure. 
+
+[![To Be Continued](https://i.imgur.com/EIl671b.gifv)](https://www.youtube.com/watch?v=4EMJl4sy-yM)
