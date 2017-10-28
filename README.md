@@ -267,3 +267,9 @@ Quando a pessoa está em uma situação mas não ta entendendo nada.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+
+## Errou do Faustão
+
+Quando a inteligência das pessoas não ajuda um programa de domingo a tarde, o apresentador tem que se virar nos 30...
+
+[![Errou!!!](https://i.ytimg.com/vi/2LCM4q6KpdQ/hqdefault.jpg)](https://youtu.be/dmorMyv0VTg?t=61)
