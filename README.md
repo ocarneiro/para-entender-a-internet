@@ -272,3 +272,7 @@ Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Gloria Maria na Jamaica](https://img.youtube.com/vi/NDzrk32ZZ5U/0.jpg)](https://www.youtube.com/watch?v=NDzrk32ZZ5U)
 
+## Glória Pires: "Não sou capaz de opinar."
+
+[![Não sou capaz de opinar](http://i0.statig.com.br/bancodeimagens/dp/8m/2t/dp8m2t2c3kbzigaf1kh9gcyal.jpg)](https://www.youtube.com/watch?v=-BcuOlHGJuo)
+
