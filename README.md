@@ -267,3 +267,6 @@ Quando a pessoa está em uma situação mas não ta entendendo nada.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+
+## Glória Pires: "Não sou capaz de opinar."
+[![Não sou capaz de opinar](http://i0.statig.com.br/bancodeimagens/dp/8m/2t/dp8m2t2c3kbzigaf1kh9gcyal.jpg)](https://www.youtube.com/watch?v=-BcuOlHGJuo)
