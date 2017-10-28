@@ -269,10 +269,10 @@ Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
 
 ## Uou! Quase embolotei!
-[![Quase embolotei](https://www.youtube.com/watch?v=puOTe1JaVVc)]
+[![Quase embolotei](https://images.duckduckgo.com/iu/?u=http%3A%2F%2Fimg.youtube.com%2Fvi%2FpuOTe1JaVVc%2F0.jpg&f=1)](https://www.youtube.com/watch?v=puOTe1JaVVc)
 
 ## O cara tussiu
 
 Reinterpretação da abertura do Jaspion
 
-[![Jaspion](https://www.youtube.com/watch?v=udaFtXNrryc)]
+[![Jaspion](https://midorihoshi.files.wordpress.com/2009/02/jaspion006-copy-copy.jpg?w=460&h=&zoom=2)](https://www.youtube.com/watch?v=udaFtXNrryc)
