@@ -272,4 +272,4 @@ Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 Entrevista com um empresário intitulado "Rei do Camarote"
 
-[![Senhora](http://images.virgula.com.br/2013/11/04/643268513-o-rei-do-camarote-em-acao789.gif)](https://www.youtube.com/watch?v=atQvZ-nq0Go)
+[![Rei do Camarote](http://images.virgula.com.br/2013/11/04/643268513-o-rei-do-camarote-em-acao789.gif)](https://www.youtube.com/watch?v=atQvZ-nq0Go)
