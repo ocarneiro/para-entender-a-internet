@@ -267,3 +267,9 @@ Quando a pessoa está em uma situação mas não ta entendendo nada.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+
+## Pederneiras ai ai
+
+Uma reportagem sobre a Festa da Uva de Caxias do Sul (RS), em 1996, que marcou a vida do jornalista Lasier Martins.
+
+[![Pederneiras](https://thumbs.gfycat.com/JauntyEnchantingIberianmidwifetoad-max-1mb.gif)](https://www.youtube.com/watch?v=li7afUaMvWk)
