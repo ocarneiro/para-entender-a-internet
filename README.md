@@ -273,3 +273,9 @@ Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 Uma reportagem sobre a Festa da Uva de Caxias do Sul (RS), em 1996, que marcou a vida do jornalista Lasier Martins.
 
 [![Pederneiras](https://thumbs.gfycat.com/JauntyEnchantingIberianmidwifetoad-max-1mb.gif)](https://www.youtube.com/watch?v=li7afUaMvWk)
+
+## Ao Tavão
+
+Toda a simpatia e graciosidade do povo brasileiro demonstrado em um vídeo. Bom dia!
+
+[![Tavao](https://i.ytimg.com/vi/HTtoxF-X3JQ/hqdefault.jpg)](https://www.youtube.com/watch?v=HTtoxF-X3JQ)
