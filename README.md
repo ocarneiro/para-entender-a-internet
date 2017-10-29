@@ -267,3 +267,9 @@ Quando a pessoa está em uma situação mas não ta entendendo nada.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+
+## Não tenho paciência com quem está começando!
+
+Susana Vieira tira o microfone da mão de uma repórter novata.
+
+[![Susana Vieira sem paciencia](https://i.ytimg.com/vi/FnC8Q3aSJQo/hqdefault.jpg)](https://youtu.be/hmh6IYlpd2M)
