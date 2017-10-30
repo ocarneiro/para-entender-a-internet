@@ -291,3 +291,9 @@ Gamer jogando Dead Space 2!
 Mãe! Respeita!
 
 [![Magrelin](https://i.ytimg.com/vi/7iJsS-qqvRs/hqdefault.jpg)](https://www.youtube.com/watch?v=9ybdghhWxS0)
+
+## Pistoleiro Papaco
+
+A melhor cena de um duelo de faroeste da história!
+
+[![Papaco](https://thumbs.gfycat.com/JointHardAddax-max-1mb.gif)](https://www.youtube.com/watch?v=0-hj_KGtvRU&t=24s)
