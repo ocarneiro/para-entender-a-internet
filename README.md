@@ -303,3 +303,9 @@ A melhor cena de um duelo de faroeste da história!
 Uma mensagem profunda para aquelas pessoas que filmam e falam!
 
 [![Bichao](https://i.makeagif.com/media/6-24-2015/IIgKKj.gif)](https://www.youtube.com/watch?v=MiQ_OSW9pLM)
+
+## Guitarra humana
+
+I think i wanna WHumlelele whelele whumlelelelumlum!
+
+[![Guitarrahumana](https://i.ytimg.com/vi/18hhUcqX3P8/hqdefault.jpg)](https://www.youtube.com/watch?v=18hhUcqX3P8)
