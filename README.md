@@ -267,3 +267,7 @@ Quando a pessoa está em uma situação mas não ta entendendo nada.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+
+## Guardião universal
+
+[![Quando você quebra as regras de ouro, você tem o caos](https://i.ytimg.com/vi/_UT5-6C5l00/hqdefault.jpg)](https://www.youtube.com/watch?v=_UT5-6C5l00)
