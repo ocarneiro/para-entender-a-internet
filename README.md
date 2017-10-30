@@ -297,3 +297,9 @@ Mãe! Respeita!
 A melhor cena de um duelo de faroeste da história!
 
 [![Papaco](https://thumbs.gfycat.com/JointHardAddax-max-1mb.gif)](https://www.youtube.com/watch?v=0-hj_KGtvRU&t=24s)
+
+## Ce é o bichão mesmo!
+
+Uma mensagem profunda para aquelas pessoas que filmam e falam!
+
+[![Bichao](https://i.makeagif.com/media/6-24-2015/IIgKKj.gif)](https://www.youtube.com/watch?v=MiQ_OSW9pLM)
