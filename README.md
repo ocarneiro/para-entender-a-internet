@@ -276,7 +276,7 @@ O homem que não tem alma e nem coração, correndo atrás de você, querendo te
 
 ## Num sei!
 
-Num sei fazer descrição também
+Num sei fazer descrição também...
 
 [![Numsei](https://media1.tenor.com/images/21316d1cd9991fff3b5fc30bf1e53154/tenor.gif?itemid=7729857)](https://www.youtube.com/watch?v=CwSGCX9slGs)
 
@@ -284,4 +284,10 @@ Num sei fazer descrição também
 
 Gamer jogando Dead Space 2!
 
-[![bichovindu](https://i.makeagif.com/media/3-23-2016/tG-L0b.gif)](https://www.youtube.com/watch?v=TYSk9msqLsg)
+[![Bichovindu](https://i.makeagif.com/media/3-23-2016/tG-L0b.gif)](https://www.youtube.com/watch?v=TYSk9msqLsg)
+
+## RIP Magrelin
+
+Mãe! Respeita!
+
+[![Magrelin](https://i.ytimg.com/vi/7iJsS-qqvRs/hqdefault.jpg)](https://www.youtube.com/watch?v=9ybdghhWxS0)
