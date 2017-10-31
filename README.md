@@ -218,6 +218,11 @@ O jogador Marin é surpreendido ao saber que está fora do próximo jogo
 
 [![Que merda hein? Sabia não](http://img.youtube.com/vi/diyqckphh3E/0.jpg)](https://www.youtube.com/watch?v=diyqckphh3E)
 
+## Que Deus perdoe essas pessoas ruins
+
+Adriano cansou da mídia pegando no pé dele
+
+[![Que Deus perdoe essas pessoas ruins!](https://http2.mlstatic.com/regata-que-deus-perdoe-essas-pessoas-ruins-adriano-imperador-D_NQ_NP_436705-MLB25070117019_092016-F.jpg)](https://www.youtube.com/watch?v=gqcFNqAN27o)
 
 ## Deus é top!
 
