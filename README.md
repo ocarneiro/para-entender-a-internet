@@ -267,3 +267,9 @@ Quando a pessoa está em uma situação mas não ta entendendo nada.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+
+## Jamais será atendido?
+
+Aquele momento que você entende porque a fila não anda.
+
+[![Aguarde ser amado](https://cdn.dopl3r.com/memes_files/acho-que-vou-ser-chamado-nunca-aguarde-ser-amado-0AERg.jpg)
