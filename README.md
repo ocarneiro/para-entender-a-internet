@@ -42,7 +42,17 @@ Se te convidarem para jantar e tomar um vinho, cuidado, Marilene!
 
 [![O Rei do Elogio](http://img.youtube.com/vi/6rrCGsecJrk/0.jpg)](https://www.youtube.com/watch?v=6rrCGsecJrk)
 
+## Pai de família
 
+Pai de Família é um meme de um ator pornô gay brasileiro. 
+
+[![Pai de família](http://img.youtube.com/vi/Lu0l5h-Yoqc/0.jpg)](https://www.youtube.com/watch?v=Lu0l5h-Yoqc)
+
+## Você pita? não? bão, eu pito muito!!!
+
+O contrabandista de cigarros mais cara de pau e cômico que já se viu. 
+
+[![Você pita?](http://img.youtube.com/vi/os-JrX8N6MQ)](https://www.youtube.com/watch?v=os-JrX8N6MQ)
 
 ## Melhor grupo do Brasil - Carreta Furacão
 
