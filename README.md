@@ -150,120 +150,31 @@ O forninho caiuuu!!
 
 Xuxa a rainha dos baixinhos pedindo "educadamente" para uma baixinha chamada Cláudia se sentar
 
-[![aham claudia](https://media.tenor.com/images/06bca210ad526a345122b9284c5b5436/tenor.gif)](https://www.youtube.com/watch?v=0ruAD9TSchI)
-
-## Antigamente isso aqui era tudo mato
-
-Para os saudosistas da internet
-
-![tudo mato](https://4.bp.blogspot.com/-KpuHkgKInpI/VtmrI1TrILI/AAAAAAAAHPI/H0HsIU1ddoI/s1600/TUDO%2BMATO.jpg)
+[![aham claudia](http://img.youtube.com/vi/0ruAD9TSchI/0.jpg)](https://www.youtube.com/watch?v=0ruAD9TSchI)
 
 
-## Cachorro? Que cachorro o que!
+## David after the dentist 
 
-Marcio canuto, famoso reporter brasileiro, entrevista garotinho que fica nervoso ao achar que foi chamado de cachorro!
+David ficou muito filosófico após ir ao dentista
 
-- e você pequenininho, quando ver um dinossauro tão grande que que se achou???
-- cachorro? Que cachorro oque? Eu não sou cachorro não...!!﻿
-
-[![## Cachorro? Que cachorro o que! Não sou cachorro não](http://img.youtube.com/vi/YvwEdt5CBQo/0.jpg)](https://www.youtube.com/watch?v=YvwEdt5CBQo)
+![https://images.duckduckgo.com/iu/?u=http%3A%2F%2Fwww.inboundstrategy.com%2Fwp-content%2Fuploads%2F2011%2F02%2FDavidAfterDentist.jpeg&f=1]https://www.youtube.com/watch?v=6ZFp-oYAbzk&index=21&list=PLvI7RDRu4mMdKSc5GoGRaF0y9se5roHNr&t=3s)
 
 
-## Vanusa canta o hino nacional
+## Sabe o que eu quero Mário Alberto?
 
-No Primeiro Encontro Estadual de Agentes Públicos em março de 2009, na Assembléia Legislativa de São Paulo, a cantora Vanusa causa incômodo a todos presentes ao cantar o hino nacional brasileiro errando a letra e a melodia... Agora vazou na internet o video e voce confere mais um episodio vergonhoso, tanto na música, quanto na política! Dizem que foi remedio pra labirintite, mas e aí? Era só parar de cantar e pronto, aposto que todos os presentes iriam compreender, mas continuar com o fiasco foi a pior saída.
-
-Detalhe que a letra estava na sua frente e ela estava usando óculos!!!!
-
-[![## Vanusa canta o hino nacional](http://img.youtube.com/vi/6w9MpztV4gk/0.jpg)](https://www.youtube.com/watch?v=6w9MpztV4gk)
+![https://images.duckduckgo.com/iu/?u=http%3A%2F%2Fimg.youtube.com%2Fvi%2F6EYmKAs7mzc%2F0.jpg&f=1](https://www.youtube.com/watch?v=6EYmKAs7mzc&index=22&list=PLvI7RDRu4mMdKSc5GoGRaF0y9se5roHNr)
 
 
-## Rodolfo!
+## Never say no to a panda!
 
-No respira...
-[![## Rodolfo](http://img.youtube.com/vi/ac7qqiXlfNg/0.jpg)](https://www.youtube.com/watch?v=ac7qqiXlfNg)
+![https://images.duckduckgo.com/iu/?u=https%3A%2F%2Ftse4.mm.bing.net%2Fth%3Fid%3DOIP.Y6DcDY7P2llj3hDr2pK-5QEzDL%26pid%3D15.1&f=1](https://www.youtube.com/watch?v=X21mJh6j9i4&index=4&list=PLvI7RDRu4mMdKSc5GoGRaF0y9se5roHNr)
 
+## Gay men will marry your girlfriends
 
-## Menina Isabela
+![https://images.duckduckgo.com/iu/?u=https%3A%2F%2Ftse2.mm.bing.net%2Fth%3Fid%3DOIP.5msShWj3vhMCi67XYR0ePwEqDR%26pid%3D15.1&f=1](https://www.youtube.com/watch?v=X-YCdcnf_P8&index=20&list=PLvI7RDRu4mMdKSc5GoGRaF0y9se5roHNr)
 
-A menina Isabela, revoltada ao saber que seu pai havia fechado a porta cobra explicações sobre o fato
+## Filho da mãe
 
-[![Menina Isabela](http://img.youtube.com/vi/hPYf951wQ1M/0.jpg)](https://www.youtube.com/watch?v=hPYf951wQ1M)
+Vou te contar uma história sobre seu pai. Seu pai era um homem muito feio.
 
-## QUERO CAFÉ
-
-ÉÉÉÉÉ!!! QUERO CAFÉ!! QUERO CAFÉÉÉ!!!
-
-[![QUERO CAFÉ](http://img.youtube.com/vi/VxRpkfcXEpA/0.jpg)](https://www.youtube.com/watch?v=VxRpkfcXEpA)
-
-## Padre Quemedo e o filho do Capeta
-
-Hermes e Renato é provavelmente o maior concentrador de falas e expressões de cultura pop da geração nascida nos anos 90. Nesse vídeo, o Padre Quemedo questiona a veracidade de um suposto Filho do Capeta
-
-[![Padre Quemedo e o filho do Capeta](http://img.youtube.com/vi/Qy0KqEs2TwY/0.jpg)](https://www.youtube.com/watch?v=Qy0KqEs2TwY)
-
-## Morre diabo!
-
-[![Morre diabo](http://img.youtube.com/vi/dAuE92NvuXU/0.jpg)](https://www.youtube.com/watch?v=dAuE92NvuXU)
-
-## Jeremias muito louco!
-
-Mais uma figura de programas políciais que ficou muito famosa quando aqui na internet era tudo mato!
-
-[![Jeremias muito louco](http://img.youtube.com/vi/87xcp4FeQSI/0.jpg)](https://www.youtube.com/watch?v=87xcp4FeQSI)
-
-## Que merda hein? Sabia não
-
-O jogador Marin é surpreendido ao saber que está fora do próximo jogo
-
-[![Que merda hein? Sabia não](http://img.youtube.com/vi/diyqckphh3E/0.jpg)](https://www.youtube.com/watch?v=diyqckphh3E)
-
-
-## Deus é top!
-
-Craque nos campos e no Twitter, Neymar deixa mensagens valiosas para nós e outros seres também!
-
-[![Deus é Top!](https://pbs.twimg.com/media/C0zM2yDXAAUgeuW.jpg)](http://blog.chicorei.com/neymar/)
-
-## Como você é burro cara!
-
-Nunca fale uma coisa idiota perto do Caetano!
-
-[![Como você é burro cara!](http://ak-hdl.buzzfed.com/static/2015-03/31/11/imagebuzz/webdr10/anigif_optimized-21589-1427816506-6.gif)](https://www.youtube.com/watch?v=lOxSDaTfujU)
-
-
-## Para noossssaaaa alegriaaa!!!
-
-Nos galhos secos de uma árvore qualquer!
-
-[![Para nooooooooossaaa alegria!](http://media.virgula.com.br/images/2014/08/20/3759201498-o-meme-para-nossa-alegria.gif)](https://www.youtube.com/watch?v=2OlVfm-kGfU)
-
-## Nissim Ourfali
-
-Eu sou Nissim, Nissim Ourfaaaalii!!
-
-[![Eu sou nissim!](http://media.virgula.com.br/images/2014/08/20/4138894012-meme-do-nissin-orfali.gif)](https://www.youtube.com/watch?v=NhkR44GIjQQ)
-
-## Tulla luana - Seguindo a diva no Instagram
-
-[![Menina mulher](https://i.ytimg.com/vi/iJq5QCLiCL0/maxresdefault.jpg)](https://www.youtube.com/watch?v=8zXUkljYsn0)
-
-## Kingsize de Niterói
-
-Com o primeiro pico de buscas no Google em 2008, o *King Size* do Rio de Janeiro é uma figura internética das mais importantes para entender o estado atual das coisas: se as coisas não estão tão bem quando deveriam, é porque o *King Size* não assumiu ainda.  O *King Size*, *ou melhor*, os *King Sizes* sãos os reis maiores do planeta, senhores das terras do Rio de Janeiro. São eles os salvadores que tornarão o serviço das barcas melhor! (Assim que a máfia chinesa parar de atrapalhar...)
-
-[![Kingsize de Niterói](http://images.uncyc.org/pt/9/99/Kingsizedorj.PNG)](https://www.youtube.com/watch?v=7tLFbUKVrUo)
-
-E saiba mais sobre essa família tão importante na [enciclopédia](http://desciclopedia.org/wiki/King_Size_do_Rio_de_Janeiro).
-
-## John Travolta em Pulp Fiction.
-
-Quando a pessoa está em uma situação mas não ta entendendo nada.
-
-[![travolta](https://media.giphy.com/media/gngO1gmBhS9na/giphy.gif)
-
-## Bora fechar?
-
-Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
-
-[![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+![https://images.duckduckgo.com/iu/?u=https%3A%2F%2Fi.ytimg.com%2Fvi%2FNDyo43kbtA8%2Fhqdefault.jpg&f=1](https://i.ytimg.com/vi/NDyo43kbtA8/hqdefault.jpg?sqp=-oaymwEXCPYBEIoBSFryq4qpAwkIARUAAIhCGAE=&rs=AOn4CLBZiik-IWXwpzOk8o8aX86LTinI9w)
