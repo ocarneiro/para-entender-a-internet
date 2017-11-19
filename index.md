@@ -70,3 +70,17 @@ Seus problemas acabaram! Neste repositório você encontrará as referências qu
 ## [Que merda hein? Sabia não](pt_br/que_merda_sabia_nao)
 
 ## [Deus é top!](pt_br/deus_eh_top)
+
+## [Como você é burro cara!](pt_br/como_voce_eh_burro)
+
+## [Para noossssaaaa alegriaaa!!!](pt_br/para_nossa_alegria)
+
+## [Nissim Ourfali](pt_br/nissim_ourfali)
+
+## [Tulla luana - Seguindo a diva no Instagram](pt_br/tulla_luana)
+
+## [Kingsize de Niterói](pt_br/kingsize_niteroi)
+
+## [John Travolta em Pulp Fiction.](pt_br/travolta_confuso)
+
+## [Bora fechar?](pt_br/bora_fechar)
