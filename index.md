@@ -54,3 +54,19 @@ Seus problemas acabaram! Neste repositório você encontrará as referências qu
 ## [Antigamente isso aqui era tudo mato ](pt_br/era_tudo_mato)
 
 ## [Mamilos são muito polemicos](pt_br/mamilos_polemicos)
+
+## [Rodolfo!](pt_br/rodolfo)
+
+## [Menina Isabela](pt_br/menina_isabela)
+
+## [QUERO CAFÉ](pt_br/quero_cafe)
+
+## [Padre Quemedo e o filho do Capeta](pt_br/padre_quemedo_filho_capeta)
+
+## [Morre diabo!](pt_br/morre_diabo)
+
+## [Jeremias muito louco!](pt_br/jeremias)
+
+## [Que merda hein? Sabia não](pt_br/que_merda_sabia_nao)
+
+## [Deus é top!](pt_br/deus_eh_top)
