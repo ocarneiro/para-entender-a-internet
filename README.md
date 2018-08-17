@@ -7,6 +7,7 @@ Seus problemas acabaram! Neste repositório você encontrará as referências qu
 
 Sinta-se à vontade para contribuir com pull requests!
 
+Quem quiser adesivos pode me procurar nos eventos!
 
 ## BIRL (Bambam bodybuilder)
 
