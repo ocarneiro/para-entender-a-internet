@@ -268,3 +268,9 @@ Quando a pessoa está em uma situação mas não ta entendendo nada.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+
+## Cepo de Madeira - Gugu Gaiteiro
+
+*"Para quem não me conhece, eu sou o Gugu Gaiteiro. E para quem me conhece, eu também sou o Gugu Gaiteiro"*
+
+[![Cepo de madeira](https://pa1.narvii.com/6525/bbbfc2866322c7d80e3b3e4d155c13277ab7ad1a_hq.gif)](https://www.youtube.com/watch?v=kXli0Ce712M)
