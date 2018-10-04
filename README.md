@@ -268,3 +268,8 @@ Quando a pessoa está em uma situação mas não ta entendendo nada.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+
+## Nissim Ourfali
+O garoto virou meme ao criar um video celebrando seu bar mitzvah 
+
+[![Nissim Ourfali]](http://img.youtube.com/vi/E5H0RF3Rqz0/)](https://www.youtube.com/watch?v=E5H0RF3Rqz0)
