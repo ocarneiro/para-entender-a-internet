@@ -268,3 +268,9 @@ Quando a pessoa está em uma situação mas não ta entendendo nada.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+
+## Felipe Smith
+
+Jovem alucinando após rave fala coisas engraçadas e sem sentido enquanto é atendido no hospital
+
+[![Samu? Seu cu](https://j.gifs.com/pQxq8r.gif)](https://www.youtube.com/watch?v=IBFIbRM1gEc&t=32s)
