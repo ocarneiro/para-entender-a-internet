@@ -268,3 +268,10 @@ Quando a pessoa está em uma situação mas não ta entendendo nada.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+
+## Shippar
+
+Shippar trata-se do ato de torcer pelo relacionamento amoroso de alguém, normalmente personagens de filmes, seriados, desenhos animados, histórias em quadrinhos, mangás e etc. Shippar é uma expressão criada a partir da palavra inglesa relationship, que significa “relacionamento”, em português.[saiba mais](https://www.significados.com.br/shippar/)
+
+[![Shippar](https://2.bp.blogspot.com/-k2tpOYYROK0/VEaMz9zBwEI/AAAAAAAAFAg/g-CsEeFJ0Pw/s1600/9830060.gif)](https://www.youtube.com/watch?v=CcAkNlxgM18)
+
