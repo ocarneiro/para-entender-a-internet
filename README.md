@@ -268,3 +268,9 @@ Quando a pessoa está em uma situação mas não ta entendendo nada.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+
+## Shake it Bololo
+
+Nada como simplesmente o melhor compilado de funk e coisas aleatórias que só o brasil pode nos oferecer e nos proporcionar, é quase inimaginável quanta histórias cabe apenas nesse pequeno trecho, muito bem acompanhado de uma boa música.
+
+[![Shake it Bololo](https://img.youtube.com/vi/oowBXzfcl90/0.jpg)](https://www.youtube.com/watch?v=oowBXzfcl90)
