@@ -287,6 +287,6 @@ Infinitos memes, mas esse é top!
 
 [![fausto e adriane galisteu](https://bhaz.com.br/wp-content/uploads/2017/10/faust%C3%A3o-tombo-850x491.jpg)](https://youtu.be/66ky8jDsLr8)
 
-Bônus:D
+Bônus :D
 
 ![huehuehue](https://i.pinimg.com/originals/8b/68/cc/8b68cc40a2ed190a17549d195d5ab988.jpg)
