@@ -293,6 +293,12 @@ Bônus :D
 
 ## É na sola da bota, é na palma da bota
 
-novo hit 2018
+Novo hit 2018
 
 [![triangulo dançante](https://img.ibxk.com.br/2018/07/31/31124535967047.jpg)](https://youtu.be/rxCs1fGxloI)
+
+## Meme Aaron Bailey
+
+Da série Full House de 87, Aaron virou meme na mão dos brasileiros
+
+[![aaron bailey](http://www.imagensparawhats.com/wp-content/uploads/2016/11/10-melhores-memes-do-garotinho-do-i-2.png)]
