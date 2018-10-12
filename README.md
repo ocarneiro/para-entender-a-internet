@@ -320,3 +320,9 @@ Oh glória...
 Ah deixa ? Só hoje
 
 ![supla](https://gerarmemes.s3.us-east-2.amazonaws.com/memes/70b5097c.jpg)
+
+## Marilyn Monroe
+
+Boa miga
+
+![marilyn monroe](https://gerarmemes.s3.us-east-2.amazonaws.com/memes/b8b001d5.jpg)
