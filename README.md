@@ -302,3 +302,9 @@ Novo hit 2018
 Da série Full House de 87, Aaron virou meme na mão dos brasileiros
 
 [![aaron bailey](http://www.imagensparawhats.com/wp-content/uploads/2016/11/10-melhores-memes-do-garotinho-do-i-2.png)]
+
+## Gloria Pires
+
+Incrivel participação nos comentarios do Oscar
+
+[![gloria pires](https://img1.ibxk.com.br/2016/12/16/16151239008088.jpg?w=700)]
