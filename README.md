@@ -289,4 +289,4 @@ Infinitos memes, mas esse é top!
 
 Bônus:D
 
-![oloco bicho](http://www.portaldotocantins.com/wp-content/uploads/2016/04/Faust%C3%A3o-324x235.jpg)![huehuehue](https://i.pinimg.com/originals/8b/68/cc/8b68cc40a2ed190a17549d195d5ab988.jpg)![fausto gordo](https://static.vix.com/pt/sites/default/files/styles/large/public/f/faustao-iogurte-ao-vivo-1018-1400x800_4.jpg?itok=idD7MFPC)
+![huehuehue](https://i.pinimg.com/originals/8b/68/cc/8b68cc40a2ed190a17549d195d5ab988.jpg)![oloco bicho](http://www.portaldotocantins.com/wp-content/uploads/2016/04/Faust%C3%A3o-324x235.jpg)![fausto gordo](https://static.vix.com/pt/sites/default/files/styles/large/public/f/faustao-iogurte-ao-vivo-1018-1400x800_4.jpg?itok=idD7MFPC)
