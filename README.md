@@ -308,3 +308,9 @@ Da série Full House de 87, Aaron virou meme na mão dos brasileiros
 Incrivel participação nos comentarios do Oscar
 
 ![gloria pires](https://img1.ibxk.com.br/2016/12/16/16151239008088.jpg?w=700)
+
+## Gloria Maria
+
+Oh glória...
+
+![gloria maria](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTrNom007bsmiOHwNbpPzVvgzSf_op2hYu5-WzvIiEdAs8eunKd)
