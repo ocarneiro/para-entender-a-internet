@@ -297,7 +297,7 @@ Novo hit 2018
 
 [![triangulo dançante](https://img.ibxk.com.br/2018/07/31/31124535967047.jpg)](https://youtu.be/rxCs1fGxloI)
 
-## Meme Aaron Bailey
+## Aaron Bailey
 
 Da série Full House de 87, Aaron virou meme na mão dos brasileiros
 
@@ -314,3 +314,9 @@ Incrivel participação nos comentarios do Oscar
 Oh glória...
 
 ![gloria maria](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTrNom007bsmiOHwNbpPzVvgzSf_op2hYu5-WzvIiEdAs8eunKd)
+
+## Supla
+
+Ah deixa ? Só hoje
+
+![supla](https://gerarmemes.s3.us-east-2.amazonaws.com/memes/70b5097c.jpg)
