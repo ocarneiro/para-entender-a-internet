@@ -332,3 +332,9 @@ Boa miga
 Tamo junto
 
 ![gato](https://gerarmemes.s3.us-east-2.amazonaws.com/memes/bab41006.jpg)
+
+## Alien Me Solta
+
+Me solta...
+
+![alien](https://gerarmemes.s3.us-east-2.amazonaws.com/memes/3b5e3fa2.jpg)
