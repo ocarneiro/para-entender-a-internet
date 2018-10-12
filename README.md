@@ -1,4 +1,4 @@
-# Para entender a internet
+﻿# Para entender a internet
 Videos e memes obrigatórios para conversas do dia-a-dia
 
 Você já se sentiu excluído por não entender comentários de pessoas na rua enquanto parece que todo o resto das pessoas está rindo? Talvez lhe falte cultura da internet.
@@ -268,3 +268,15 @@ Quando a pessoa está em uma situação mas não ta entendendo nada.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+
+## Mochilas Gigantes de Jequié
+
+O que as crianças levam nessas mochilas ?!...
+
+![mochila gigante](https://statig2.akamaized.net/bancodeimagens/3z/70/6x/3z706xrf3iarh5edih8cdmkfj.jpg)
+
+## Cavalete com pressa
+
+Corre para não tomar chuva :'D
+
+[![cavalinho andando sozinho](https://i.ytimg.com/vi/I1JCat2qM1I/hqdefault.jpg)](https://youtu.be/I1JCat2qM1I)
