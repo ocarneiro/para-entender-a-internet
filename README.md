@@ -326,3 +326,9 @@ Ah deixa ? Só hoje
 Boa miga
 
 ![marilyn monroe](https://gerarmemes.s3.us-east-2.amazonaws.com/memes/b8b001d5.jpg)
+
+## Gato Mal Humorado
+
+Tamo junto
+
+![gato](https://gerarmemes.s3.us-east-2.amazonaws.com/memes/bab41006.jpg)
