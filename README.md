@@ -1,4 +1,4 @@
-# Para entender a internet
+﻿# Para entender a internet
 Videos e memes obrigatórios para conversas do dia-a-dia
 
 Você já se sentiu excluído por não entender comentários de pessoas na rua enquanto parece que todo o resto das pessoas está rindo? Talvez lhe falte cultura da internet.
@@ -268,3 +268,9 @@ Quando a pessoa está em uma situação mas não ta entendendo nada.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+
+## Caindo no casos de família
+
+Gabriel dançando de pernas abertas um funk no programa casos de família.
+
+[![Caindo no casos de  família](https://i.ytimg.com/vi/wXM1kcwmJzs/maxresdefault.jpg)](https://www.youtube.com/watch?v=0ec5Y65kZto)
