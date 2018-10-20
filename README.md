@@ -274,3 +274,9 @@ Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 Durante a Copa do Mundo de 2018, Yury Torsky viralizou por ter cara de psicopata e ir ao jogo do Brasil e México com a bandeira do Brasil. No início, pensavam que era brasileiro, mas depois descobriram que ele era russo.
 
 [![Psicopata da copa](https://rims.com.br/uploads/images/2018/07/psicopata-do-hexa-vai-assistir-brasil-x-belgica-a-convite-da-cbf-1530828787.jpg)](https://www.youtube.com/watch?v=EdqEoq42Uk0)
+
+## Que deselegante!
+
+Durante uma reportagem do Jornal Hoje, uma repórter é empurrada por três homens ao vivo. Sandra Annemberg fica indignada e solta: "Que deselegante".
+
+[![Que deselegante](https://media.giphy.com/media/dnoi2xJZZKs8w/giphy.gif)](https://www.youtube.com/watch?v=BdR2FVqTf5k)
