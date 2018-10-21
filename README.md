@@ -277,8 +277,3 @@ Funcionária publica é entrevistada por jornalista sobre ela só bater o ponto 
 [![Senhora funcionária publica](https://imgsapp2.uai.com.br/app/noticia_133890394703/2015/09/29/172366/20150929145905942301e.jpg)](https://www.youtube.com/watch?v=GdxPGO10fG4)
 
 
-## Sou eu! O tiririca!!
-Quando você está esperando que o Goku chege e salve o planeta terra, mas é só Tiririca mesmo.
-
-
-[![Tiririca chega e ninguém espera por isso](https://uploaddeimagens.com.br/images/001/680/500/original/tiririca.PNG?1540090894)](https://youtu.be/kvgFFbbvBPs)
