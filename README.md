@@ -281,4 +281,4 @@ Funcionária publica é entrevistada por jornalista sobre ela só bater o ponto 
 Quando você está esperando que o Goku chege e salve o planeta terra, mas é só Tiririca mesmo.
 
 
-[![Senhora funcionária publica](https://zippy.gfycat.com/DesertedSmartGemsbok.webm)](https://youtu.be/kvgFFbbvBPs)
+[![Tiririca chega e ninguém espera por isso](https://uploaddeimagens.com.br/images/001/680/500/original/tiririca.PNG?1540090894)](https://youtu.be/kvgFFbbvBPs)
