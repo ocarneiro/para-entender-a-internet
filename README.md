@@ -272,4 +272,4 @@ Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 ## Senhora ?
 Funcionária publica é entrevistada por jornalista sobre ela só bater o ponto e sair correndo da jornalista e a jornalista persegue ela. 
-[![Mulher sai correndo da jornalista](http://s3-sa-east-1.amazonaws.com/descomplica-blog/wp-content/uploads/2015/10/enhanced-buzz-2736-1443537099-16.jpg)]
+(http://s3-sa-east-1.amazonaws.com/descomplica-blog/wp-content/uploads/2015/10/enhanced-buzz-2736-1443537099-16.jpg)
