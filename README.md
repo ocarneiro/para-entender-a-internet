@@ -271,8 +271,8 @@ Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 ## Concordando com tudo pra não arrumar uma treta.
 
-Nicole Bahls ficou famosa após sua participação no reality show "A Fazenda".
+Nicole Bahls ficou bastante famosa após sua participação no reality show "A Fazenda".
 
 Tem dias que estamos que nem ela, concordando com tudo pra não "tretar" com ninguém.
 
-[![nicole](https://tenor.com/view/nicole-bahls-gif-11301875)
+[![nicole](https://media1.tenor.com/images/2c69d08b4be9c1fb3374aaccf01c7e1f/tenor.gif?itemid=11301875)
