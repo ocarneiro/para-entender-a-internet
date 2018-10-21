@@ -274,3 +274,9 @@ Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 Suspeito sendo preso responde ironicamente ao jornalista.
 
 [![voce e o bichao](https://i.ytimg.com/vi/MiQ_OSW9pLM/hqdefault.jpg)](https://www.youtube.com/watch?v=MiQ_OSW9pLM)
+
+## HACKERMAN
+
+Quando você resolve aquele erro simples no código. (Personagem do filme Kung Fury | 2015)
+
+[![HACKERMAN](https://ih0.redbubble.net/image.175665193.4068/mp,550x550,matte,ffffff,t.3u2.jpg)](https://www.youtube.com/watch?v=fQGbXmkSArs)
