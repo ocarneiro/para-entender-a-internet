@@ -20,4 +20,9 @@ One of the most popular images associated with "WAT" is that of a surprised look
 
 [![WAT grandma](https://i.kym-cdn.com/photos/images/newsfeed/000/173/576/Wat8.jpg?1315930535)](https://knowyourmeme.com/memes/wat)
 
+## All Star
+
+"All Star" is a 1999 alternative rock song by Smash Mouth, which was notably featured as a main theme in the Shrek franchise. Online, the song is frequently referenced in ironic meme communities and has been widely remixed, covered and parodied.
+
+[![All Star](https://i.kym-cdn.com/entries/icons/original/000/018/137/Smash_Mouth_-_All_Star_0-33_screenshot.png)](https://knowyourmeme.com/memes/all-star)
 
