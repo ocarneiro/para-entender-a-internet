@@ -268,3 +268,18 @@ Quando a pessoa está em uma situação mas não ta entendendo nada.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+
+## Concordando com tudo pra não arrumar uma treta.
+
+Nicole Bahls ficou bastante famosa após sua participação no reality show "A Fazenda".
+
+Tem dias que estamos que nem ela, concordando com tudo pra não "tretar" com ninguém.
+
+![nicole](https://media1.tenor.com/images/2c69d08b4be9c1fb3374aaccf01c7e1f/tenor.gif?itemid=11301875)
+
+## É aquele ditado: vamo fazer o que?
+
+Inês Brasil é uma cantora, dançarina e atriz muito conhecida pelas suas frases que acabaram virando meme.
+
+![ines](https://media.giphy.com/media/TidHfACqQif3q/giphy.gif)
+
