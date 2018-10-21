@@ -281,3 +281,5 @@ Glória, do Fantástico, fez uma matéria e experimentou coisas diferentes... O 
 
 [![gloria](https://gfycat.com/gifs/detail/idealskinnyilladopsis)](https://www.youtube.com/watch?v=NDzrk32ZZ5U&feature=youtu.be)
 
+## BRAZIL DANCING
+![brazil](https://media.giphy.com/media/PSKAppO2LH56w/giphy.gif)
