@@ -281,3 +281,8 @@ Entrevista com Isoléia falando sobre uma palestra de dengue que ela assistiu
 
 [![Se tem algum sintoma tem que ir na farmácia, alguma coisa, só isso então](https://i.ytimg.com/vi/bJ5lGqyAnis/maxresdefault.jpg)](https://www.youtube.com/watch?v=bP6khuJYF84)
 
+## "É assim que se mastiga, ô"
+
+Garotinho ensinando a mastigar chiclete
+
+[![É assim que se mastiga, ô](https://i.ytimg.com/vi/h1UnVwD469g/maxresdefault.jpg)](https://www.youtube.com/watch?v=rN8MONWqWQ8)
