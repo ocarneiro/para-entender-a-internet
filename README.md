@@ -283,3 +283,6 @@ Glória, do Fantástico, fez uma matéria e experimentou coisas diferentes... O 
 
 ## BRAZIL DANCING
 ![brazil](https://media.giphy.com/media/PSKAppO2LH56w/giphy.gif)
+
+## DAVID TENNANT NYC GIF PELO PALEY CENTER FOR MEDIA
+![david](https://media.giphy.com/media/37QACMcasENQuIhwbq/giphy.gif)
