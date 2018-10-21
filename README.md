@@ -273,4 +273,4 @@ Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
  Inês Brasil é uma cantora, dançar e se tornar muito menor nas suas frases que acabam virando meme.
  
- ![ines]https://media.giphy.com/media/TidHfACqQif3q/giphy.gif)
+ ![ines](https://media.giphy.com/media/TidHfACqQif3q/giphy.gif)
