@@ -274,3 +274,10 @@ Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
  Inês Brasil é uma cantora, dançar e se tornar muito menor nas suas frases que acabam virando meme.
  
  ![ines](https://media.giphy.com/media/TidHfACqQif3q/giphy.gif)
+ 
+ ## Glória Maria
+
+Glória, do Fantástico, fez uma matéria e experimentou coisas diferentes... O reusltado foi esse:
+
+![gloria](https://tenor.com/view/gloriamaria-doida-montanharussa-gif-9212888)
+
