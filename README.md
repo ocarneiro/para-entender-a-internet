@@ -276,3 +276,10 @@ Nicole Bahls ficou bastante famosa após sua participação no reality show "A F
 Tem dias que estamos que nem ela, concordando com tudo pra não "tretar" com ninguém.
 
 ![nicole](https://media1.tenor.com/images/2c69d08b4be9c1fb3374aaccf01c7e1f/tenor.gif?itemid=11301875)
+
+## É aquele ditado: vamo fazer o que?
+
+Inês Brasil é uma cantora, dançarina e atriz muito conhecida pelas suas frases que acabaram virando meme.
+
+![ines](https://media.giphy.com/media/TidHfACqQif3q/giphy.gif)
+
