@@ -268,3 +268,9 @@ Quando a pessoa está em uma situação mas não ta entendendo nada.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+
+##  É aquele ditado: vamo fazer o que?
+
+ Inês Brasil é uma cantora, dançar e se tornar muito menor nas suas frases que acabam virando meme.
+ 
+ ![ines]https://media.giphy.com/media/TidHfACqQif3q/giphy.gif)
