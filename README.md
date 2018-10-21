@@ -278,5 +278,6 @@ Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
  ## Glória Maria
 
 Glória, do Fantástico, fez uma matéria e experimentou coisas diferentes... O reusltado foi esse:
-![gloria](http://www.museudememes.com.br/wp-content/uploads/2018/03/gif-gloria-maria-1.gif)
+
+[![gloria](https://gfycat.com/gifs/detail/idealskinnyilladopsis)](https://www.youtube.com/watch?v=NDzrk32ZZ5U&feature=youtu.be)
 
