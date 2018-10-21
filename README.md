@@ -268,3 +268,9 @@ Quando a pessoa está em uma situação mas não ta entendendo nada.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+
+## Que deselegante!
+
+Durante uma reportagem do Jornal Hoje, uma repórter é empurrada por três homens ao vivo. Sandra Annemberg fica indignada e solta: "Que deselegante".
+
+[![Que deselegante](https://media.giphy.com/media/dnoi2xJZZKs8w/giphy.gif)](https://www.youtube.com/watch?v=BdR2FVqTf5k)
