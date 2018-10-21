@@ -275,4 +275,9 @@ Gif de um triângulo dançando sem parar uma versão modificada da música "Na s
 
 [![É na sola da bota, é na palma da bota...](https://thumbs.gfycat.com/SelfishMasculineGeese-size_restricted.gif)](https://www.youtube.com/watch?v=bP6khuJYF84)
 
+## "Nossa cara, tô nervosa"
+
+Entrevista com Isoléia falando sobre uma palestra de dengue que ela assistiu 
+
+[![Se tem algum sintoma tem que ir na farmácia, alguma coisa, só isso então](https://i.ytimg.com/vi/bJ5lGqyAnis/maxresdefault.jpg)](https://www.youtube.com/watch?v=bP6khuJYF84)
 
