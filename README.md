@@ -279,5 +279,5 @@ Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 Glória, do Fantástico, fez uma matéria e experimentou coisas diferentes... O reusltado foi esse:
 
-![gloria](https://tenor.com/view/gloriamaria-doida-montanharussa-gif-9212888)
+[![gloria](https://tenor.com/view/gloriamaria-doida-montanharussa-gif-9212888)
 
