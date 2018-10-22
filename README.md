@@ -274,3 +274,9 @@ Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 A pessoa nutella gosta de coisas "fancy" e gosta de se sentir popular/atualizado. Pode ser aplicado em varios contextos.
 
 ![Nutella](https://target.scene7.com/is/image/Target/GUEST_8a9eb8dd-7070-478e-85c2-bc53deb02227?wid=488&hei=488&fmt=pjpeg)
+
+## Raiz
+
+A pessoa raiz gosta de coisas feitas de forma "tradicional". Pode ser aplicado em varios contextos.
+
+![Raiz](https://www.saludcasera.com/wp-content/uploads/2016/06/raiz-de-ashwagandha.jpg)
