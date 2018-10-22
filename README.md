@@ -292,3 +292,9 @@ Slogan de uma propaganda do início dos anos 2000.
 Cena do filme TITANIC | 1997
 
 [![eightyfour](https://j.gifs.com/4x0APV.gif)](https://www.youtube.com/watch?v=7tectqamOkc)
+
+## Gosto mais de batata e gosto mais de estudar também.
+
+Frase tirada de uma esquete do Hermes & Renato. (Personagem - Charlinho).
+
+[![batataeestudar](https://i.ytimg.com/vi/_z1uo1HxnGg/hqdefault.jpg)](https://www.youtube.com/watch?v=B6Vyhtvpp4k&t)
