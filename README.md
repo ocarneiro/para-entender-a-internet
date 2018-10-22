@@ -268,3 +268,9 @@ Quando a pessoa está em uma situação mas não ta entendendo nada.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+
+## Sou eu! O tiririca!!
+Quando você está esperando que o Goku chege e salve o planeta terra, mas é só Tiririca mesmo.
+
+
+[![Tiririca chega e ninguém espera por isso](https://uploaddeimagens.com.br/images/001/680/500/original/tiririca.PNG?1540090894)](https://youtu.be/kvgFFbbvBPs)
