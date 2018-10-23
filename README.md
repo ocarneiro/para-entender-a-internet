@@ -268,3 +268,9 @@ Quando a pessoa está em uma situação mas não ta entendendo nada.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+
+## Choque de Cultura - "Me vejo obrigado a concordar com o palestrinha"
+
+Frase proferida pelo personagem Julinho da Van, interpretado por Leandro Ramos, concordando com o personagem Maurilio, interpretado por Raul Chequer.
+
+[![Me vejo obrigado a concordar com o palestrinha!](https://www.packdememes.com.br/meme/63841a759db4d7c470da874f22b81d82.jpg)]
