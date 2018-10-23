@@ -268,3 +268,9 @@ Quando a pessoa está em uma situação mas não ta entendendo nada.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+
+## O melhor do nordeste no YouTube
+
+O canal do YouTube se chama Keké Isso na TV e contém duas estrelinhas chamadas Irene e Zuzu. Começou com aulas da Dona Irene e hoje tem temas diversificados, mas mantendo o gênero do humor.
+
+[![DonaIrene](https://media.giphy.com/media/bMJ0VU9VGFiCc/giphy.gif)
