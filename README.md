@@ -289,3 +289,8 @@ Durante as eleições brasileiros de 2018 surgiu um movimento chamado #EleNão, 
 O trio surgiu no carnaval com uma série de memes por meio das músicas. As meninas de Recife-PE bombaram com as gírias: Cebruthius e Escama só de Peixe UAII. Cebruthius era a palavra que a cantora Loma entendia quando a caixinha de som JBL ligava, que na verdade era a frase "The bluetooh device is ready to pai". Já "Escama só de peixe" é quando alguém está se achando e você diz "Escama é só de peixe, bebê".
 
 ![McLoma](https://img.buzzfeed.com/buzzfeed-static/static/2018-02/11/12/asset/buzzfeed-prod-fastlane-03/anigif_sub-buzz-25150-1518370621-6.gif?crop=176:143;73,37)
+
+## Inês Brasil: O meme ambulante
+"Segura a marimba monamu" "Se me ataca eu vou ataca" "Bata na sua cara antes que eu bata" e por aí vai...
+
+![InêsBrasil](https://i.pinimg.com/originals/da/34/63/da34637550276da6734c385bdcdf9655.jpg)
