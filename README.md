@@ -293,4 +293,4 @@ O trio surgiu no carnaval com uma série de memes por meio das músicas. As meni
 ## Inês Brasil: O meme ambulante
 "Segura a marimba monamu" "Se me ataca eu vou ataca" "Bata na sua cara antes que eu bata" e por aí vai...
 
-![InêsBrasil](https://i.pinimg.com/originals/da/34/63/da34637550276da6734c385bdcdf9655.jpg)
+![Inês Brasil](https://i.pinimg.com/originals/da/34/63/da34637550276da6734c385bdcdf9655.jpg)
