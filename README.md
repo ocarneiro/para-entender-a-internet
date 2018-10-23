@@ -268,3 +268,9 @@ Quando a pessoa está em uma situação mas não ta entendendo nada.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+
+## Choque da Uva
+
+Lasier Martins, protagonista e vítima de um vídeo que virou mania na internet, o choque tomado durante a cobertura ao vivo.
+
+[![Ai Ai Ai](https://thumbs.gfycat.com/FlawlessFondGenet-size_restricted.gif )](https://www.youtube.com/watch?v=ddoL5IHLMYk)
