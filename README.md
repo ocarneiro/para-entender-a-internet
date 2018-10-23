@@ -287,3 +287,9 @@ Frase proferida pelo personagem Julinho da Van, ao solicitar a oportunidade de c
 
 [![Olha a denúncia aqui oh!!](https://www.packdememes.com.br/meme/ab086aaa8af775c9ef522421b03abe40.jpg)]
 
+## Choque de Cultura - "Era uma criança linda, agora virou um adulto esquisito"
+
+Frase proferida pelo personagem Renan, ao comentar a mudança de algumas pessoas sofrem na vida.
+
+[![Olha a denúncia aqui oh!!](https://www.packdememes.com.br/meme/064e547ac1e32c6f27b6581a3f3ff394.jpg)]
+
