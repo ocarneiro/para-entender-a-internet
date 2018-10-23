@@ -274,3 +274,10 @@ Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 Frase proferida pelo personagem Julinho da Van, interpretado por Leandro Ramos, concordando com o personagem Maurilio, interpretado por Raul Chequer.
 
 [![Me vejo obrigado a concordar com o palestrinha!](https://www.packdememes.com.br/meme/63841a759db4d7c470da874f22b81d82.jpg)]
+
+## Choque de Cultura - "Olha a denúncia aqui oh!!"
+
+Frase proferida pelo personagem Rogerinho do Ingá, ao enfatizar algo "denunciado" por algum dos participantes do programa.
+
+[![Olha a denúncia aqui oh!!](https://www.packdememes.com.br/meme/432a583695f8c0ef3eff77124c051962.jpg)]
+
