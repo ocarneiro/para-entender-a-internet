@@ -268,3 +268,7 @@ Quando a pessoa está em uma situação mas não ta entendendo nada.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+
+## Gordinho Jaguatirica
+
+[![Gordinho Jaguatirica](https://media1.tenor.com/images/b9ed4063766ed0ceeb65e66a9047041e/tenor.gif?itemid=11814576)](https://www.youtube.com/watch?v=OE0Fe2Snktc)
