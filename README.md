@@ -275,12 +275,12 @@ O canal do YouTube se chama Keké Isso na TV e contém duas estrelinhas chamadas
 
 ![DonaIrene](https://media.giphy.com/media/bMJ0VU9VGFiCc/giphy.gif)
 
-## Movimento #EleNão
-Durante as eleições brasileiros de 2018 surgiu um movimento chamado #EleNão, aderido por pessoa que são contra o candidato Jair Bolsonaro.
-
-![EleNão](https://i1.wp.com/www.botequimdeideias.com.br/flogase/wp-content/uploads/2018/09/artigo-elenao.jpg?fit=540%2C300)
-
 ## Tive Irene
 Na série do YouTube Girls In The House, criada no The Sims por Raony Phillips, há uma cabeleireira chamada Irene conhecida por deixar as pessoas careca quando vão no seu salão. Então quando alguém volta de um salão e o corte não deu certo: diz-se que teve Irene.
 
 ![TiveIrene](https://pm1.narvii.com/6831/56277d6ce5e968cd8c42ff320b65ab67e9d76a92v2_hq.jpg)
+
+## Movimento #EleNão
+Durante as eleições brasileiros de 2018 surgiu um movimento chamado #EleNão, aderido por pessoa que são contra o candidato Jair Bolsonaro.
+
+![EleNão](https://i1.wp.com/www.botequimdeideias.com.br/flogase/wp-content/uploads/2018/09/artigo-elenao.jpg?fit=540%2C300)
