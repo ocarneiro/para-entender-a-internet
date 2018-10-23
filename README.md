@@ -284,3 +284,8 @@ Na série do YouTube Girls In The House, criada no The Sims por Raony Phillips, 
 Durante as eleições brasileiros de 2018 surgiu um movimento chamado #EleNão, aderido por pessoa que são contra o candidato Jair Bolsonaro.
 
 ![EleNão](https://i1.wp.com/www.botequimdeideias.com.br/flogase/wp-content/uploads/2018/09/artigo-elenao.jpg?fit=540%2C300)
+
+## Mc Loma e as Gêmeas Lacração
+O trio surgiu no carnaval com uma série de memes por meio das músicas. As meninas de Recife-PE bombaram com as gírias: Cebruthius e Escama só de Peixe UAII. Cebruthius era a palavra que a cantora Loma entendia quando a caixinha de som JBL ligava, que na verdade era a frase "The bluetooh device is ready to pai". Já "Escama só de peixe" é quando alguém está se achando e você diz "Escama é só de peixe, bebê".
+
+![McLoma](https://img.buzzfeed.com/buzzfeed-static/static/2018-02/11/12/asset/buzzfeed-prod-fastlane-03/anigif_sub-buzz-25150-1518370621-6.gif?crop=176:143;73,37)
