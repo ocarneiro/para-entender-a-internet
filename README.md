@@ -273,4 +273,9 @@ Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 O canal do YouTube se chama Keké Isso na TV e contém duas estrelinhas chamadas Irene e Zuzu. Começou com aulas da Dona Irene e hoje tem temas diversificados, mas mantendo o gênero do humor.
 
-[![DonaIrene](https://media.giphy.com/media/bMJ0VU9VGFiCc/giphy.gif)
+![DonaIrene](https://media.giphy.com/media/bMJ0VU9VGFiCc/giphy.gif)
+
+## Movimento #EleNão
+Durante as eleições brasileiros de 2018 surgiu um movimento chamado #EleNão, aderido por pessoa que são contra o candidato Jair Bolsonaro.
+
+![EleNão](https://i1.wp.com/www.botequimdeideias.com.br/flogase/wp-content/uploads/2018/09/artigo-elenao.jpg?fit=540%2C300)
