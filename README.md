@@ -303,4 +303,4 @@ Essa coisa fofa viralizou na internet como o simbolo de pura vitoria! Muito usad
 
 Classico dos classicos. Preciso mesmo explicar o poker face? Quando voce nao tiver ideia do que fazer: Poker face '-'
 
-![Pokerface](https://hips.hearstapps.com/cosmouk.cdnds.net/15/31/1438173668-cute-success-kid.jpg?crop=1xw:1.0xh;center,top&resize=480:*)
+![Pokerface](https://i.kym-cdn.com/entries/icons/original/000/003/193/teddy-bear-poker-face.jpg)
