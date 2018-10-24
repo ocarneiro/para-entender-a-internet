@@ -289,6 +289,6 @@ Esse meme deve ser utilizado quando alguem faz algo totalmente fora do "normal" 
 
 ## Moon Moon
 
-Um husk pode ser conhecido como "Moon Moon" na internet. Ainda mais como ele faz coisas estranhas.
+Um husk pode ser conhecido como "Moon Moon" na internet. Ainda mais quando ele faz coisas estranhas.
 
 ![MoonMoon](https://i.ytimg.com/vi/Bc658p8pmL4/hqdefault.jpg)
