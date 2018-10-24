@@ -268,3 +268,10 @@ Quando a pessoa está em uma situação mas não ta entendendo nada.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+
+## Mano, cê tem demência?
+
+Garoto questiona indignado a trollagem feita pelo irmão
+
+[![Demencia](https://makeagif.com/i/yiUMAc)](https://www.youtube.com/watch?v=k4cNNOELKwM)
+
