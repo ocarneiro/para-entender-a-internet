@@ -292,3 +292,9 @@ Esse meme deve ser utilizado quando alguem faz algo totalmente fora do "normal" 
 Um husk pode ser conhecido como "Moon Moon" na internet. Ainda mais quando ele faz coisas estranhas.
 
 ![MoonMoon](https://i.ytimg.com/vi/Bc658p8pmL4/hqdefault.jpg)
+
+## I did it! (Eu consegui!)
+
+Essa coisa fofa viralizou na internet como o simbolo de pura vitoria! Muito usado quando conseguimos atingir ou ate ultrapassar nossas metas.
+
+![BabyMeme](https://hips.hearstapps.com/cosmouk.cdnds.net/15/31/1438173668-cute-success-kid.jpg?crop=1xw:1.0xh;center,top&resize=480:*)
