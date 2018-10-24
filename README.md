@@ -268,3 +268,9 @@ Quando a pessoa está em uma situação mas não ta entendendo nada.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+
+## É Fistaile!
+
+Ih a lá ó, É FISTAILE!!
+
+[![Fistaile](https://thumbs.gfycat.com/PessimisticPertinentBeetle-size_restricted.gif)](https://www.youtube.com/watch?v=6al4seQ6yQI)
