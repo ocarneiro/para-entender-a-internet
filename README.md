@@ -280,3 +280,9 @@ A pessoa nutella gosta de coisas "fancy" e gosta de se sentir popular/atualizado
 A pessoa raiz gosta de coisas feitas de forma "tradicional". Pode ser aplicado em varios contextos.
 
 ![Raiz](https://www.saludcasera.com/wp-content/uploads/2016/06/raiz-de-ashwagandha.jpg)
+
+## Absolutely Barbaric
+
+Esse meme deve ser utilizado quando alguem faz algo totalmente fora do "normal" ou do "padrao". Essa pessoa eh dita uma barbara! Exemplo: essa imagem poderia ser enviada para alguem que coloca o feijao antes do arroz na montagem do prato.
+
+![Barbaric](https://pics.me.me/absolutely-barbaric-27770087.png)
