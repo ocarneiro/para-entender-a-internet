@@ -272,7 +272,7 @@ Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 ## Lindomar, o Sub-zero Brasileiro
 
-Quando a babá malvada que agredia crianças saiu na rua, nosso herói entrou em ação
+Quando a babá malvada que agredia crianças saiu na rua, nosso herói entrou em ação.
 
-[![↑ · → A](http://www.museudememes.com.br/wp-content/uploads/2017/03/lindomar-sub.jpg)(https://www.youtube.com/watch?v=OM4mw1q5PP4)
+[![LINDOMAR](http://www.museudememes.com.br/wp-content/uploads/2017/03/lindomar-sub.jpg)](https://www.youtube.com/watch?v=OM4mw1q5PP4)
 
