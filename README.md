@@ -291,4 +291,8 @@ Quando a babá malvada que agredia crianças saiu na rua, nosso herói entrou em
 
 [![falta de sacanagem](http://1.bp.blogspot.com/_OxHsI7USKdE/S_SLc4eX_jI/AAAAAAAAAXw/M6B84Bk4Rpw/s1600/falta+de+sacanagem.jpg)](https://www.youtube.com/watch?v=d_L_yoI7buE)
 
+## Vou xingar muito no twitter
+
+[![Xingar no twitter](https://pbs.twimg.com/media/CgHZNacXIAAwqNU.jpg)](https://youtu.be/yRzrhzeusvU?t=107)
+
 
