@@ -282,3 +282,7 @@ Quando a babá malvada que agredia crianças saiu na rua, nosso herói entrou em
 ## Irineu, você não sabe nem eu!
 
 [![IRINEU](https://i.ytimg.com/vi/1vFk3u0pac4/maxresdefault.jpg)](https://www.youtube.com/watch?v=Hebw7Mw_WAg)
+
+## Grávida de Taubaté
+
+[![gravida](https://observatoriodatelevisao.bol.uol.com.br/wp-content/uploads/2018/03/edu-guedes-e-a-gravida-de-taubate.jpg)](https://www.youtube.com/watch?v=ch7_m_IT_vY)
