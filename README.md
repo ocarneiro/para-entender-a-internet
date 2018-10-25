@@ -268,3 +268,11 @@ Quando a pessoa está em uma situação mas não ta entendendo nada.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+
+
+## Lindomar, o Sub-zero Brasileiro
+
+Quando a babá malvada que agredia crianças saiu na rua, nosso herói entrou em ação
+
+[![↑ · → A](http://www.museudememes.com.br/wp-content/uploads/2017/03/lindomar-sub.jpg)(https://www.youtube.com/watch?v=OM4mw1q5PP4)
+
