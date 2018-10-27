@@ -5,15 +5,15 @@ Você já se sentiu excluído por não entender comentários de pessoas na rua e
 
 Seus problemas acabaram! Neste repositório você encontrará as referências que lhe faltam para entender do que as pessoas estão falando.
 
-Sinta-se à vontade para contribuir com pull requests!
+Sinta-se à vontade para contribuir com pull requests! [Instruções.](CONTRIBUTING.md)
 
+Quem quiser adesivos pode me procurar nos eventos!
 
 ## BIRL (Bambam bodybuilder)
 
 Bambam, participante do Big Brother Brasil (BBB) edição 1 de 2002, fez um vídeo malhando e falando muitos palavrões:
 
 [![BIRL](https://img.buzzfeed.com/buzzfeed-static/static/2016-05/31/12/asset/buzzfeed-prod-web14/anigif_sub-buzz-4076-1464711500-10.gif)](http://www.youtube.com/watch?v=zwvsa7DzzHY)
-
 
 ## Fazer humanas e viver da arte, fazer miçangas
 
@@ -82,12 +82,15 @@ Dava pra melhor com certeza, quer dizer que ia mudar melhor, já tava bom, disse
 [![Tava ruim, agora parece que piorou](https://i.makeagif.com/media/5-20-2015/41-jmq.gif)](//www.youtube.com/watch?v=VX3lz5ph8A0)
 
 
-
 ## Omae wa mou shindeiru! Nani??
 
 Oriúndo do animê Hokuto no ken(1983), viralizou nos segundo semestre de 2017. É usado quando alguém aplica um golpe ( verbal ou fisico ) em outro de forma arrasadora. A tradução é " você já está morto! O que?? "
 
 [![## Omae wa mou shindeiru! Nani??](http://img.youtube.com/vi/YSgpU70MZno/0.jpg)](http://www.youtube.com/watch?v=YSgpU70MZno)
+
+## Ai que susto!
+
+[![## Omae wa mou shindeiru! Nani??](http://img.youtube.com/vi/JDz3wuapS_s/0.jpg)](http://www.youtube.com/watch?v=JDz3wuapS_s)
 
 
 ## É uma cilada Bino!
@@ -242,7 +245,7 @@ Nos galhos secos de uma árvore qualquer!
 
 ## Nissim Ourfali
 
-Eu sou Nissim, Nissim Ourfaaaalii!! 
+Eu sou Nissim, Nissim Ourfaaaalii!!
 
 [![Eu sou nissim!](http://media.virgula.com.br/images/2014/08/20/4138894012-meme-do-nissin-orfali.gif)](https://www.youtube.com/watch?v=NhkR44GIjQQ)
 
@@ -269,3 +272,9 @@ Quando a pessoa está em uma situação mas não ta entendendo nada.
 Excelente ministração do pastor sobre como os fiéis devem lavar o cu.
 
 [![Tem raiva do cu?](https://i.ytimg.com/vi/p7jyJ9YpsgE/hqdefault.jpg)](https://www.youtube.com/watch?v=ny1xNZdvMw4)
+
+## Bora fechar?
+
+Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
+
+[![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
