@@ -5,7 +5,7 @@ Você já se sentiu excluído por não entender comentários de pessoas na rua e
 
 Seus problemas acabaram! Neste repositório você encontrará as referências que lhe faltam para entender do que as pessoas estão falando.
 
-Sinta-se à vontade para contribuir com pull requests!
+Sinta-se à vontade para contribuir com pull requests! [Instruções.](CONTRIBUTING.md)
 
 Quem quiser adesivos pode me procurar nos eventos!
 
