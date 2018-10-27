@@ -268,3 +268,9 @@ Quando a pessoa está em uma situação mas não ta entendendo nada.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+
+## Glória a Deux
+
+O Cabo Daciolo é um homem de fé e todo o seu discurso parte disso, porém ao repetir "glória a Deus" por muitas vezes com o seu sotaque carioca, acabou se tornando um meme.
+
+[![Glória a Deux](https://abrilveja.files.wordpress.com/2018/09/brasil-eleicoes-debate-sbt-presidenciaveis-20180926-0018.jpg)]
