@@ -274,3 +274,9 @@ Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 O Cabo Daciolo é um homem de fé e todo o seu discurso parte disso, porém ao repetir "glória a Deus" por muitas vezes com o seu sotaque carioca, acabou se tornando um meme.
 
 [![Glória a Deux](https://abrilveja.files.wordpress.com/2018/09/brasil-eleicoes-debate-sbt-presidenciaveis-20180926-0018.jpg)]
+
+## Barbie e Ken Cidadãos de Bem
+
+Durante o período de discussões eleitoreiras em outubro de 2018, surgiu um meme com uma das mais conhecidas personagens no mundo: a boneca Barbie. A mesma foi usada para ironizar críticas ao PT e a pautas progressistas.
+
+[![Barbie e Ken Cidadãos de Bem](https://static.noticiasaominuto.com.br/stockimages/gallery/1920/naom_5bc4f8ff1f692.jpg)]
