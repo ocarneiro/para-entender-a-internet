@@ -306,3 +306,9 @@ Meme baseado no cliffhanger usado ao fim de episodios do anime Jojo’s Bizarre 
  Será  ele tá triste ou será que só tá triste? Não se preocupe ele só está triste. 
 
 [![gato gordo e tal](http://images7.memedroid.com/images/UPLOADED625/58c2d2ef87184.jpeg)
+
+##  Integrante do time dos melhores memes da hitória, se encaixa perfeitamente em tudo.
+
+Pq tenho convicção disso? poderia explicar mas...
+
+[![novo meme](https://media1.tenor.com/images/9222397bb3248130032d555c461880ce/tenor.gif?itemid=9170418)
