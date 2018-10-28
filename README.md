@@ -279,6 +279,12 @@ Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
 
+## Agrega valor ao camarote
+
+Entrevista com um empresário intitulado "Rei do Camarote"
+
+[![Rei do Camarote](http://images.virgula.com.br/2013/11/04/643268513-o-rei-do-camarote-em-acao789.gif)](https://www.youtube.com/watch?v=atQvZ-nq0Go)
+
 ## Errou do Faustão
 
 Quando a inteligência das pessoas não ajuda um programa de domingo a tarde, o apresentador tem que se virar nos 30...
