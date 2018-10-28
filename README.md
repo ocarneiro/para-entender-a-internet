@@ -5,8 +5,9 @@ Você já se sentiu excluído por não entender comentários de pessoas na rua e
 
 Seus problemas acabaram! Neste repositório você encontrará as referências que lhe faltam para entender do que as pessoas estão falando.
 
-Sinta-se à vontade para contribuir com pull requests!
+Sinta-se à vontade para contribuir com pull requests! [Instruções.](CONTRIBUTING.md)
 
+Quem quiser adesivos pode me procurar nos eventos!
 
 ## BIRL (Bambam bodybuilder)
 
@@ -86,6 +87,10 @@ Dava pra melhor com certeza, quer dizer que ia mudar melhor, já tava bom, disse
 Oriúndo do animê Hokuto no ken(1983), viralizou nos segundo semestre de 2017. É usado quando alguém aplica um golpe ( verbal ou fisico ) em outro de forma arrasadora. A tradução é " você já está morto! O que?? "
 
 [![## Omae wa mou shindeiru! Nani??](http://img.youtube.com/vi/YSgpU70MZno/0.jpg)](http://www.youtube.com/watch?v=YSgpU70MZno)
+
+## Ai que susto!
+
+[![## Omae wa mou shindeiru! Nani??](http://img.youtube.com/vi/JDz3wuapS_s/0.jpg)](http://www.youtube.com/watch?v=JDz3wuapS_s)
 
 
 ## É uma cilada Bino!
@@ -244,6 +249,117 @@ Eu sou Nissim, Nissim Ourfaaaalii!!
 
 [![Eu sou nissim!](http://media.virgula.com.br/images/2014/08/20/4138894012-meme-do-nissin-orfali.gif)](https://www.youtube.com/watch?v=NhkR44GIjQQ)
 
+## CEPO DE MADEIRA
+
+Apresentação de uma brincadeira feita com palitos de fósforos e um cepo de madeira.
+
+[![Cepo de madeira](https://i.ytimg.com/vi/WQrTrbMAixk/hqdefault.jpg)](https://www.youtube.com/watch?v=Omwbh6Jo1IM)
+## Rap do homem macaco
+
+O homem que não tem alma e nem coração, correndo atrás de você, querendo te rasgar...
+
+[![Homimacaco](https://i.ytimg.com/vi/GpRh53EwG6Q/hqdefault.jpg)](https://www.youtube.com/watch?v=GpRh53EwG6Q)
+
+## Num sei!
+
+Num sei fazer descrição também...
+
+[![Numsei](https://media1.tenor.com/images/21316d1cd9991fff3b5fc30bf1e53154/tenor.gif?itemid=7729857)](https://www.youtube.com/watch?v=CwSGCX9slGs)
+
+## Óh o bichu vindo muleque!
+
+Gamer jogando Dead Space 2!
+
+[![Bichovindu](https://i.makeagif.com/media/3-23-2016/tG-L0b.gif)](https://www.youtube.com/watch?v=TYSk9msqLsg)
+
+## RIP Magrelin
+
+Mãe! Respeita!
+
+[![Magrelin](https://i.ytimg.com/vi/7iJsS-qqvRs/hqdefault.jpg)](https://www.youtube.com/watch?v=9ybdghhWxS0)
+
+## Pistoleiro Papaco
+
+A melhor cena de um duelo de faroeste da história!
+
+[![Papaco](https://thumbs.gfycat.com/JointHardAddax-max-1mb.gif)](https://www.youtube.com/watch?v=0-hj_KGtvRU&t=24s)
+
+## Ce é o bichão mesmo!
+
+Uma mensagem profunda para aquelas pessoas que filmam e falam!
+
+[![Bichao](https://i.makeagif.com/media/6-24-2015/IIgKKj.gif)](https://www.youtube.com/watch?v=MiQ_OSW9pLM)
+
+## Guitarra humana
+
+I think i wanna WHumlelele whelele whumlelelelumlum!
+
+[![Guitarrahumana](https://i.ytimg.com/vi/18hhUcqX3P8/hqdefault.jpg)](https://www.youtube.com/watch?v=18hhUcqX3P8)
+
+## Legal! Bem Louco!
+
+Entrevista muito várzea sobre uma visita no setor agropecuário...Leite!
+
+[![Leite](https://4.bp.blogspot.com/-Sgx0L_-dzEg/V3Zf_7IQtYI/AAAAAAAAAmU/zgnuL3rQql0UVJkygyIet9XalkiP2fzNACLcB/s1600/tumblr_m74kpw0l4R1r29478o1_500%255B1%255D.gif)](https://www.youtube.com/watch?v=PbbXhCRyZVQ)
+
+## Pederneiras ai ai
+
+Uma reportagem sobre a Festa da Uva de Caxias do Sul (RS), em 1996, que marcou a vida do jornalista Lasier Martins.
+
+[![Pederneiras](https://thumbs.gfycat.com/JauntyEnchantingIberianmidwifetoad-max-1mb.gif)](https://www.youtube.com/watch?v=li7afUaMvWk)
+
+## Ao Tavão
+
+Toda a simpatia e graciosidade do povo brasileiro demonstrado em um vídeo. Bom dia!
+
+[![Tavao](https://i.ytimg.com/vi/HTtoxF-X3JQ/hqdefault.jpg)](https://www.youtube.com/watch?v=HTtoxF-X3JQ)
+
+## Não tenho paciência com quem está começando!
+
+Susana Vieira tira o microfone da mão de uma repórter novata.
+
+[![Susana Vieira sem paciencia](https://i.ytimg.com/vi/FnC8Q3aSJQo/hqdefault.jpg)](https://youtu.be/hmh6IYlpd2M)
+
+## Susana Vieira Confiante
+
+Ninguém é mais poderosa do que Susana Vieira, segundo ela mesma.
+
+[![Susana Vieira Confiante](https://img.buzzfeed.com/buzzfeed-static/static/2014-12/3/9/enhanced/webdr11/enhanced-20397-1417615218-7.png)](https://www.youtube.com/watch?v=JLFWEsm2KdM)
+
+## Agrega valor ao camarote
+
+Entrevista com um empresário intitulado "Rei do Camarote"
+
+[![Rei do Camarote](http://images.virgula.com.br/2013/11/04/643268513-o-rei-do-camarote-em-acao789.gif)](https://www.youtube.com/watch?v=atQvZ-nq0Go)
+
+## Errou do Faustão
+
+Quando a inteligência das pessoas não ajuda um programa de domingo a tarde, o apresentador tem que se virar nos 30...
+
+[![Errou!!!](https://i.ytimg.com/vi/2LCM4q6KpdQ/hqdefault.jpg)](https://youtu.be/dmorMyv0VTg?t=61)
+
+## Za Warudo (The World - JOJO)
+
+ZA WARUDO!, ou THE WORLD! É um golpe criado pelo vampiro Dio Brando que possui o poder de paralisar o tempo.
+
+[![Za Warudo](http://img.youtube.com/vi/s7wzJ6EJdvY/0.jpg)](https://www.youtube.com/watch?v=s7wzJ6EJdvY&t)
+
+## Yes - Roundabout / To Be Continued...
+
+Meme baseado no cliffhanger usado ao fim de episodios do anime Jojo’s Bizarre Adventure. 
+
+[![To Be Continued](https://i.makeagif.com/media/5-18-2016/SyNrOL.gif)](https://www.youtube.com/watch?v=4EMJl4sy
+
+## Guardião universal
+
+[![Quando você quebra as regras de ouro, você tem o caos](https://i.ytimg.com/vi/_UT5-6C5l00/hqdefault.jpg)](https://www.youtube.com/watch?v=_UT5-6C5l00)
+
+## Pai de família
+
+Aahhhhhh, que delícia, cara!
+
+[![jailson](https://uploads.spiritfanfics.com/fanfics/historias/201605/fanfiction-originais-pai-de-familia-iv-o-retorno-do-urso-manso-5655098-240520162253.png)](https://www.youtube.com/watch?v=Lu0l5h-Yoqc)
+
 ## Tulla luana - Seguindo a diva no Instagram
 
 [![Menina mulher](https://i.ytimg.com/vi/iJq5QCLiCL0/maxresdefault.jpg)](https://www.youtube.com/watch?v=8zXUkljYsn0)
@@ -262,12 +378,14 @@ Quando a pessoa está em uma situação mas não ta entendendo nada.
 
 [![travolta](https://media.giphy.com/media/gngO1gmBhS9na/giphy.gif)
 
+## Tem raiva do cu?
+
+Excelente ministração do pastor sobre como os fiéis devem lavar o cu.
+
+[![Tem raiva do cu?](https://i.ytimg.com/vi/p7jyJ9YpsgE/hqdefault.jpg)](https://www.youtube.com/watch?v=ny1xNZdvMw4)
+
 ## Bora fechar?
 
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
-
-## Guardião universal
-
-[![Quando você quebra as regras de ouro, você tem o caos](https://i.ytimg.com/vi/_UT5-6C5l00/hqdefault.jpg)](https://www.youtube.com/watch?v=_UT5-6C5l00)
