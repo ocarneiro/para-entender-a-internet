@@ -396,6 +396,83 @@ Reportagem sobre o desaparecimento de uma galinha de estimação.
 
 [![Rafinha](https://pbs.twimg.com/media/DR-CRIaWkAEC_Va.jpg)](https://www.youtube.com/watch?v=w9dbKLw-k0Q)
 
+
+## Mochilas Gigantes de Jequié
+
+O que as crianças levam nessas mochilas ?!...
+
+![mochila gigante](https://statig2.akamaized.net/bancodeimagens/3z/70/6x/3z706xrf3iarh5edih8cdmkfj.jpg)
+
+## Cavalete com pressa
+
+Corre para não tomar chuva :'D
+
+[![cavalinho andando sozinho](https://i.ytimg.com/vi/I1JCat2qM1I/hqdefault.jpg)](https://youtu.be/I1JCat2qM1I)
+
+## Faustop
+
+Infinitos memes, mas esse é top!
+
+[![fausto e adriane galisteu](https://bhaz.com.br/wp-content/uploads/2017/10/faust%C3%A3o-tombo-850x491.jpg)](https://youtu.be/66ky8jDsLr8)
+
+Bônus :D
+
+![huehuehue](https://i.pinimg.com/originals/8b/68/cc/8b68cc40a2ed190a17549d195d5ab988.jpg)
+
+## É na sola da bota, é na palma da bota
+
+Novo hit 2018
+
+[![triangulo dançante](https://img.ibxk.com.br/2018/07/31/31124535967047.jpg)](https://youtu.be/rxCs1fGxloI)
+
+## Aaron Bailey
+
+Da série Full House de 87, Aaron virou meme na mão dos brasileiros
+
+![aaron bailey](http://www.imagensparawhats.com/wp-content/uploads/2016/11/10-melhores-memes-do-garotinho-do-i-2.png)
+
+## Gloria Pires
+
+Incrivel participação nos comentarios do Oscar
+
+![gloria pires](https://img1.ibxk.com.br/2016/12/16/16151239008088.jpg?w=700)
+
+## Gloria Maria
+
+Oh glória...
+
+![gloria maria](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTrNom007bsmiOHwNbpPzVvgzSf_op2hYu5-WzvIiEdAs8eunKd)
+
+## Supla
+
+Ah deixa ? Só hoje
+
+![supla](https://gerarmemes.s3.us-east-2.amazonaws.com/memes/70b5097c.jpg)
+
+## Marilyn Monroe
+
+Boa miga
+
+![marilyn monroe](https://gerarmemes.s3.us-east-2.amazonaws.com/memes/b8b001d5.jpg)
+
+## Gato Mal Humorado
+
+Tamo junto
+
+![gato](https://gerarmemes.s3.us-east-2.amazonaws.com/memes/bab41006.jpg)
+
+## Alien Me Solta
+
+Me solta...
+
+![alien](https://gerarmemes.s3.us-east-2.amazonaws.com/memes/3b5e3fa2.jpg)
+
+## Shake it Bololo
+
+Nada como simplesmente o melhor compilado de funk e coisas aleatórias que só o brasil pode nos oferecer e nos proporcionar, é quase inimaginável quanta histórias cabe apenas nesse pequeno trecho, muito bem acompanhado de uma boa música.
+
+[![Shake it Bololo](https://img.youtube.com/vi/oowBXzfcl90/0.jpg)](https://www.youtube.com/watch?v=oowBXzfcl90)
+
 ## Meu querido eu sou cantora
 
 Maísa e mais uma de suas perolas quando criança
@@ -431,9 +508,3 @@ Excelente ministração do pastor sobre como os fiéis devem lavar o cu.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
-
-## Shake it Bololo
-
-Nada como simplesmente o melhor compilado de funk e coisas aleatórias que só o brasil pode nos oferecer e nos proporcionar, é quase inimaginável quanta histórias cabe apenas nesse pequeno trecho, muito bem acompanhado de uma boa música.
-
-[![Shake it Bololo](https://img.youtube.com/vi/oowBXzfcl90/0.jpg)](https://www.youtube.com/watch?v=oowBXzfcl90)
