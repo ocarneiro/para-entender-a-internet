@@ -379,3 +379,10 @@ Excelente ministração do pastor sobre como os fiéis devem lavar o cu.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+
+
+## Pai de família
+
+Aahhhhhh, que delícia, cara!
+
+[![jailson](https://uploads.spiritfanfics.com/fanfics/historias/201605/fanfiction-originais-pai-de-familia-iv-o-retorno-do-urso-manso-5655098-240520162253.png)](https://www.youtube.com/watch?v=Lu0l5h-Yoqc)
