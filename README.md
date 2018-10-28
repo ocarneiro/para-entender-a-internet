@@ -361,7 +361,7 @@ ZA WARUDO!, ou THE WORLD! É um golpe criado pelo vampiro Dio Brando que possui 
 
 Meme baseado no cliffhanger usado ao fim de episodios do anime Jojo’s Bizarre Adventure. 
 
-[![To Be Continued](https://i.makeagif.com/media/5-18-2016/SyNrOL.gif)](https://www.youtube.com/watch?v=4EMJl4sy
+[![To Be Continued](https://i.makeagif.com/media/5-18-2016/SyNrOL.gif)](https://www.youtube.com/watch?v=4EMJl4sy)
 
 ## Guardião universal
 
