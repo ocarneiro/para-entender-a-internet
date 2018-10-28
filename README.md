@@ -279,6 +279,54 @@ Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
 
+## Rap do homem macaco
+
+O homem que não tem alma e nem coração, correndo atrás de você, querendo te rasgar...
+
+[![Homimacaco](https://i.ytimg.com/vi/GpRh53EwG6Q/hqdefault.jpg)](https://www.youtube.com/watch?v=GpRh53EwG6Q)
+
+## Num sei!
+
+Num sei fazer descrição também...
+
+[![Numsei](https://media1.tenor.com/images/21316d1cd9991fff3b5fc30bf1e53154/tenor.gif?itemid=7729857)](https://www.youtube.com/watch?v=CwSGCX9slGs)
+
+## Óh o bichu vindo muleque!
+
+Gamer jogando Dead Space 2!
+
+[![Bichovindu](https://i.makeagif.com/media/3-23-2016/tG-L0b.gif)](https://www.youtube.com/watch?v=TYSk9msqLsg)
+
+## RIP Magrelin
+
+Mãe! Respeita!
+
+[![Magrelin](https://i.ytimg.com/vi/7iJsS-qqvRs/hqdefault.jpg)](https://www.youtube.com/watch?v=9ybdghhWxS0)
+
+## Pistoleiro Papaco
+
+A melhor cena de um duelo de faroeste da história!
+
+[![Papaco](https://thumbs.gfycat.com/JointHardAddax-max-1mb.gif)](https://www.youtube.com/watch?v=0-hj_KGtvRU&t=24s)
+
+## Ce é o bichão mesmo!
+
+Uma mensagem profunda para aquelas pessoas que filmam e falam!
+
+[![Bichao](https://i.makeagif.com/media/6-24-2015/IIgKKj.gif)](https://www.youtube.com/watch?v=MiQ_OSW9pLM)
+
+## Guitarra humana
+
+I think i wanna WHumlelele whelele whumlelelelumlum!
+
+[![Guitarrahumana](https://i.ytimg.com/vi/18hhUcqX3P8/hqdefault.jpg)](https://www.youtube.com/watch?v=18hhUcqX3P8)
+
+## Legal! Bem Louco!
+
+Entrevista muito várzea sobre uma visita no setor agropecuário...Leite!
+
+[![Leite](https://4.bp.blogspot.com/-Sgx0L_-dzEg/V3Zf_7IQtYI/AAAAAAAAAmU/zgnuL3rQql0UVJkygyIet9XalkiP2fzNACLcB/s1600/tumblr_m74kpw0l4R1r29478o1_500%255B1%255D.gif)](https://www.youtube.com/watch?v=PbbXhCRyZVQ)
+=======
 ## Pederneiras ai ai
 
 Uma reportagem sobre a Festa da Uva de Caxias do Sul (RS), em 1996, que marcou a vida do jornalista Lasier Martins.
