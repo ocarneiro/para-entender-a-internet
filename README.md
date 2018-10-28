@@ -1,4 +1,4 @@
-# Para entender a internet
+﻿# Para entender a internet
 Videos e memes obrigatórios para conversas do dia-a-dia
 
 Você já se sentiu excluído por não entender comentários de pessoas na rua enquanto parece que todo o resto das pessoas está rindo? Talvez lhe falte cultura da internet.
@@ -366,6 +366,18 @@ Aahhhhhh, que delícia, cara!
 
 [![jailson](https://uploads.spiritfanfics.com/fanfics/historias/201605/fanfiction-originais-pai-de-familia-iv-o-retorno-do-urso-manso-5655098-240520162253.png)](https://www.youtube.com/watch?v=Lu0l5h-Yoqc)
 
+## Pepe, o sapo
+
+Quando bate aquela tristeza repentina...
+
+![pepe](https://i.guim.co.uk/img/media/327e46c3ab049358fad80575146be9e0e65686e7/0_0_1023_742/master/1023.jpg?width=300&quality=85&auto=format&fit=max&s=02632218051da209be64b27e96722c43)
+
+## Jamais será atendido?
+
+Aquele momento que você entende porque a fila não anda.
+
+![Aguarde ser amado](https://cdn.dopl3r.com/memes_files/acho-que-vou-ser-chamado-nunca-aguarde-ser-amado-0AERg.jpg)
+
 ## Tulla luana - Seguindo a diva no Instagram
 
 [![Menina mulher](https://i.ytimg.com/vi/iJq5QCLiCL0/maxresdefault.jpg)](https://www.youtube.com/watch?v=8zXUkljYsn0)
@@ -395,9 +407,3 @@ Excelente ministração do pastor sobre como os fiéis devem lavar o cu.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
-
-## Jamais será atendido?
-
-Aquele momento que você entende porque a fila não anda.
-
-[![Aguarde ser amado](https://cdn.dopl3r.com/memes_files/acho-que-vou-ser-chamado-nunca-aguarde-ser-amado-0AERg.jpg)
