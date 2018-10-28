@@ -533,3 +533,9 @@ Excelente ministração do pastor sobre como os fiéis devem lavar o cu.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+
+## É o quê???
+
+Você tá de boas no seu LoLzin quando...
+
+[![EOQ](https://i.ytimg.com/vi/MaW4fY8ScYw/hqdefault.jpg)](https://youtu.be/MaW4fY8ScYw)
