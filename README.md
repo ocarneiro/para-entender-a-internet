@@ -5,8 +5,9 @@ Você já se sentiu excluído por não entender comentários de pessoas na rua e
 
 Seus problemas acabaram! Neste repositório você encontrará as referências que lhe faltam para entender do que as pessoas estão falando.
 
-Sinta-se à vontade para contribuir com pull requests!
+Sinta-se à vontade para contribuir com pull requests! [Instruções.](CONTRIBUTING.md)
 
+Quem quiser adesivos pode me procurar nos eventos!
 
 ## BIRL (Bambam bodybuilder)
 
@@ -86,6 +87,10 @@ Dava pra melhor com certeza, quer dizer que ia mudar melhor, já tava bom, disse
 Oriúndo do animê Hokuto no ken(1983), viralizou nos segundo semestre de 2017. É usado quando alguém aplica um golpe ( verbal ou fisico ) em outro de forma arrasadora. A tradução é " você já está morto! O que?? "
 
 [![## Omae wa mou shindeiru! Nani??](http://img.youtube.com/vi/YSgpU70MZno/0.jpg)](http://www.youtube.com/watch?v=YSgpU70MZno)
+
+## Ai que susto!
+
+[![## Omae wa mou shindeiru! Nani??](http://img.youtube.com/vi/JDz3wuapS_s/0.jpg)](http://www.youtube.com/watch?v=JDz3wuapS_s)
 
 
 ## É uma cilada Bino!
@@ -262,6 +267,12 @@ Quando a pessoa está em uma situação mas não ta entendendo nada.
 
 [![travolta](https://media.giphy.com/media/gngO1gmBhS9na/giphy.gif)
 
+## Tem raiva do cu?
+
+Excelente ministração do pastor sobre como os fiéis devem lavar o cu.
+
+[![Tem raiva do cu?](https://i.ytimg.com/vi/p7jyJ9YpsgE/hqdefault.jpg)](https://www.youtube.com/watch?v=ny1xNZdvMw4)
+
 ## Bora fechar?
 
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
@@ -315,3 +326,51 @@ I think i wanna WHumlelele whelele whumlelelelumlum!
 Entrevista muito várzea sobre uma visita no setor agropecuário...Leite!
 
 [![Leite](https://4.bp.blogspot.com/-Sgx0L_-dzEg/V3Zf_7IQtYI/AAAAAAAAAmU/zgnuL3rQql0UVJkygyIet9XalkiP2fzNACLcB/s1600/tumblr_m74kpw0l4R1r29478o1_500%255B1%255D.gif)](https://www.youtube.com/watch?v=PbbXhCRyZVQ)
+=======
+## Pederneiras ai ai
+
+Uma reportagem sobre a Festa da Uva de Caxias do Sul (RS), em 1996, que marcou a vida do jornalista Lasier Martins.
+
+[![Pederneiras](https://thumbs.gfycat.com/JauntyEnchantingIberianmidwifetoad-max-1mb.gif)](https://www.youtube.com/watch?v=li7afUaMvWk)
+
+## Ao Tavão
+
+Toda a simpatia e graciosidade do povo brasileiro demonstrado em um vídeo. Bom dia!
+
+[![Tavao](https://i.ytimg.com/vi/HTtoxF-X3JQ/hqdefault.jpg)](https://www.youtube.com/watch?v=HTtoxF-X3JQ)
+
+## Não tenho paciência com quem está começando!
+
+Susana Vieira tira o microfone da mão de uma repórter novata.
+
+[![Susana Vieira sem paciencia](https://i.ytimg.com/vi/FnC8Q3aSJQo/hqdefault.jpg)](https://youtu.be/hmh6IYlpd2M)
+
+##Susana Vieira Confiante
+
+Ninguém é mais poderosa do que Susana Vieira, segundo ela mesma.
+
+[![Susana Vieira Confiante](https://img.buzzfeed.com/buzzfeed-static/static/2014-12/3/9/enhanced/webdr11/enhanced-20397-1417615218-7.png)](https://www.youtube.com/watch?v=JLFWEsm2KdM)
+
+## Agrega valor ao camarote
+
+Entrevista com um empresário intitulado "Rei do Camarote"
+
+[![Rei do Camarote](http://images.virgula.com.br/2013/11/04/643268513-o-rei-do-camarote-em-acao789.gif)](https://www.youtube.com/watch?v=atQvZ-nq0Go)
+
+## Errou do Faustão
+
+Quando a inteligência das pessoas não ajuda um programa de domingo a tarde, o apresentador tem que se virar nos 30...
+
+[![Errou!!!](https://i.ytimg.com/vi/2LCM4q6KpdQ/hqdefault.jpg)](https://youtu.be/dmorMyv0VTg?t=61)
+
+## Za Warudo (The World - JOJO)
+
+ZA WARUDO!, ou THE WORLD! É um golpe criado pelo vampiro Dio Brando que possui o poder de paralisar o tempo.
+
+[![Za Warudo](http://img.youtube.com/vi/s7wzJ6EJdvY/0.jpg)](https://www.youtube.com/watch?v=s7wzJ6EJdvY&t)
+
+## Yes - Roundabout / To Be Continued...
+
+Meme baseado no cliffhanger usado ao fim de episodios do anime Jojo’s Bizarre Adventure. 
+
+[![To Be Continued](https://i.makeagif.com/media/5-18-2016/SyNrOL.gif)](https://www.youtube.com/watch?v=4EMJl4sy-yM)
