@@ -9,6 +9,13 @@ Sinta-se à vontade para contribuir com pull requests! [Instruções.](CONTRIBUT
 
 Quem quiser adesivos pode me procurar nos eventos!
 
+## Sanduíche (iche)
+
+Ruth Lemos, nutricionista, dá dicas sobre uma alimentação saudável-ável que ofereça-ereça condições de uma melhora de vida de vida. 
+
+[![Sanduicheiche](https://vignette.wikia.nocookie.net/meme/images/1/14/Ruth_Lemos.png/revision/latest?cb=20151016223957&path-prefix=pt-br)](https://www.youtube.com/watch?v=pmn-dbBpglU)
+
+
 ## BIRL (Bambam bodybuilder)
 
 Bambam, participante do Big Brother Brasil (BBB) edição 1 de 2002, fez um vídeo malhando e falando muitos palavrões:
