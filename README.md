@@ -350,6 +350,16 @@ Meme baseado no cliffhanger usado ao fim de episodios do anime Jojo’s Bizarre 
 
 [![To Be Continued](https://i.makeagif.com/media/5-18-2016/SyNrOL.gif)](https://www.youtube.com/watch?v=4EMJl4sy
 
+## Guardião universal
+
+[![Quando você quebra as regras de ouro, você tem o caos](https://i.ytimg.com/vi/_UT5-6C5l00/hqdefault.jpg)](https://www.youtube.com/watch?v=_UT5-6C5l00)
+
+## Pai de família
+
+Aahhhhhh, que delícia, cara!
+
+[![jailson](https://uploads.spiritfanfics.com/fanfics/historias/201605/fanfiction-originais-pai-de-familia-iv-o-retorno-do-urso-manso-5655098-240520162253.png)](https://www.youtube.com/watch?v=Lu0l5h-Yoqc)
+
 ## Tulla luana - Seguindo a diva no Instagram
 
 [![Menina mulher](https://i.ytimg.com/vi/iJq5QCLiCL0/maxresdefault.jpg)](https://www.youtube.com/watch?v=8zXUkljYsn0)
@@ -379,10 +389,3 @@ Excelente ministração do pastor sobre como os fiéis devem lavar o cu.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
-
-
-## Pai de família
-
-Aahhhhhh, que delícia, cara!
-
-[![jailson](https://uploads.spiritfanfics.com/fanfics/historias/201605/fanfiction-originais-pai-de-familia-iv-o-retorno-do-urso-manso-5655098-240520162253.png)](https://www.youtube.com/watch?v=Lu0l5h-Yoqc)
