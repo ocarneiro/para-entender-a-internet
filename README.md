@@ -378,6 +378,18 @@ Aquele momento que você entende porque a fila não anda.
 
 ![Aguarde ser amado](https://cdn.dopl3r.com/memes_files/acho-que-vou-ser-chamado-nunca-aguarde-ser-amado-0AERg.jpg)
 
+## Galinha Rafinha
+
+Reportagem sobre o desaparecimento de uma galinha de estimação.
+
+[![Rafinha](https://pbs.twimg.com/media/DR-CRIaWkAEC_Va.jpg)](https://www.youtube.com/watch?v=w9dbKLw-k0Q)
+
+## Meu querido eu sou cantora
+
+Maísa e mais uma de suas perolas quando criança
+
+[![Eu sou cantora](http://img.youtube.com/vi/PQ-KZxt139Y/0.jpg)](https://www.youtube.com/watch?v=PQ-KZxt139Y)
+
 ## Tulla luana - Seguindo a diva no Instagram
 
 [![Menina mulher](https://i.ytimg.com/vi/iJq5QCLiCL0/maxresdefault.jpg)](https://www.youtube.com/watch?v=8zXUkljYsn0)
@@ -407,9 +419,3 @@ Excelente ministração do pastor sobre como os fiéis devem lavar o cu.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
-
-## Meu querido eu sou cantora
-
-Maísa e mais uma de suas perolas quando criança
-
-[![Eu sou cantora](http://img.youtube.com/vi/PQ-KZxt139Y/0.jpg)](https://www.youtube.com/watch?v=PQ-KZxt139Y)
