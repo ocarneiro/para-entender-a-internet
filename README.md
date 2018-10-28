@@ -279,6 +279,18 @@ Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
 
+## Não tenho paciência com quem está começando!
+
+Susana Vieira tira o microfone da mão de uma repórter novata.
+
+[![Susana Vieira sem paciencia](https://i.ytimg.com/vi/FnC8Q3aSJQo/hqdefault.jpg)](https://youtu.be/hmh6IYlpd2M)
+
+##Susana Vieira Confiante
+
+Ninguém é mais poderosa do que Susana Vieira, segundo ela mesma.
+
+[![Susana Vieira Confiante](https://img.buzzfeed.com/buzzfeed-static/static/2014-12/3/9/enhanced/webdr11/enhanced-20397-1417615218-7.png)](https://www.youtube.com/watch?v=JLFWEsm2KdM)
+
 ## Agrega valor ao camarote
 
 Entrevista com um empresário intitulado "Rei do Camarote"
