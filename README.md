@@ -240,20 +240,20 @@ Craque nos campos e no Twitter, Neymar deixa mensagens valiosas para nós e outr
 
 Nunca fale uma coisa idiota perto do Caetano!
 
-[![Como você é burro cara!](http://ak-hdl.buzzfed.com/static/2015-03/31/11/imagebuzz/webdr10/anigif_optimized-21589-1427816506-6.gif)](https://www.youtube.com/watch?v=lOxSDaTfujU)
+[![Como você é burro cara!](https://media.giphy.com/media/uZfADsbOw4Dcs/giphy.gif)](https://www.youtube.com/watch?v=lOxSDaTfujU)
 
 
 ## Para noossssaaaa alegriaaa!!!
 
 Nos galhos secos de uma árvore qualquer!
 
-[![Para nooooooooossaaa alegria!](http://media.virgula.com.br/images/2014/08/20/3759201498-o-meme-para-nossa-alegria.gif)](https://www.youtube.com/watch?v=2OlVfm-kGfU)
+[![Para nooooooooossaaa alegria!](https://i.makeagif.com/media/6-14-2016/zHPUfx.gif)](https://www.youtube.com/watch?v=2OlVfm-kGfU)
 
 ## Nissim Ourfali
 
 Eu sou Nissim, Nissim Ourfaaaalii!!
 
-[![Eu sou nissim!](http://media.virgula.com.br/images/2014/08/20/4138894012-meme-do-nissin-orfali.gif)](https://www.youtube.com/watch?v=NhkR44GIjQQ)
+[![Eu sou nissim!](http://lh4.googleusercontent.com/--_ucPUeGFlM/UDQEkIkPkhI/AAAAAAAASR0/lsDqUU8n5ho/s800/gifnissim01.gif)](https://www.youtube.com/watch?v=x8CPttI71xE)
 
 ## CEPO DE MADEIRA
 
