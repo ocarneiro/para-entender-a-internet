@@ -5,7 +5,7 @@ Você já se sentiu excluído por não entender comentários de pessoas na rua e
 
 Seus problemas acabaram! Neste repositório você encontrará as referências que lhe faltam para entender do que as pessoas estão falando.
 
-Sinta-se à vontade para contribuir com pull requests!
+Sinta-se à vontade para contribuir com pull requests! [Instruções.](CONTRIBUTING.md)
 
 Quem quiser adesivos pode me procurar nos eventos!
 
@@ -54,7 +54,8 @@ Se te convidarem para jantar e tomar um vinho, cuidado, Marilene!
 
 [![Ja acabou Jessica?](http://pa1.narvii.com/6541/4c4abe735f3a38dd67bec505d4e89761fd95f942_hq.gif)](https://www.youtube.com/watch?v=E40xwYKlZHo)
 
-
+## Sou Faraó
+[![Sou Faraó?](https://i.makeagif.com/media/5-03-2015/Uj2PP0.gif)](https://www.youtube.com/watch?v=n0-HLCrRGHo)
 
 ## E o bambú?
 
@@ -87,6 +88,10 @@ Dava pra melhor com certeza, quer dizer que ia mudar melhor, já tava bom, disse
 Oriúndo do animê Hokuto no ken(1983), viralizou nos segundo semestre de 2017. É usado quando alguém aplica um golpe ( verbal ou fisico ) em outro de forma arrasadora. A tradução é " você já está morto! O que?? "
 
 [![## Omae wa mou shindeiru! Nani??](http://img.youtube.com/vi/YSgpU70MZno/0.jpg)](http://www.youtube.com/watch?v=YSgpU70MZno)
+
+## Ai que susto!
+
+[![## Omae wa mou shindeiru! Nani??](http://img.youtube.com/vi/JDz3wuapS_s/0.jpg)](http://www.youtube.com/watch?v=JDz3wuapS_s)
 
 
 ## É uma cilada Bino!
@@ -215,10 +220,15 @@ Mais uma figura de programas políciais que ficou muito famosa quando aqui na in
 
 ## Que merda hein? Sabia não
 
-O jogador Marin é surpreendido ao saber que está fora do próximo jogo
+O jogador Marinho é surpreendido ao saber que está fora do próximo jogo
 
 [![Que merda hein? Sabia não](http://img.youtube.com/vi/diyqckphh3E/0.jpg)](https://www.youtube.com/watch?v=diyqckphh3E)
 
+## Que Deus perdoe essas pessoas ruins
+
+Adriano cansou da mídia pegando no pé dele
+
+[![Que Deus perdoe essas pessoas ruins!](https://http2.mlstatic.com/regata-que-deus-perdoe-essas-pessoas-ruins-adriano-imperador-D_NQ_NP_436705-MLB25070117019_092016-F.jpg)](https://www.youtube.com/watch?v=gqcFNqAN27o)
 
 ## Deus é top!
 
@@ -245,29 +255,147 @@ Eu sou Nissim, Nissim Ourfaaaalii!!
 
 [![Eu sou nissim!](http://media.virgula.com.br/images/2014/08/20/4138894012-meme-do-nissin-orfali.gif)](https://www.youtube.com/watch?v=NhkR44GIjQQ)
 
-## Tulla luana - Seguindo a diva no Instagram
+## CEPO DE MADEIRA
 
-[![Menina mulher](https://i.ytimg.com/vi/iJq5QCLiCL0/maxresdefault.jpg)](https://www.youtube.com/watch?v=8zXUkljYsn0)
+Apresentação de uma brincadeira feita com palitos de fósforos e um cepo de madeira.
 
-## Kingsize de Niterói
+[![Cepo de madeira](https://i.ytimg.com/vi/WQrTrbMAixk/hqdefault.jpg)](https://www.youtube.com/watch?v=Omwbh6Jo1IM)
+## Rap do homem macaco
 
-Com o primeiro pico de buscas no Google em 2008, o *King Size* do Rio de Janeiro é uma figura internética das mais importantes para entender o estado atual das coisas: se as coisas não estão tão bem quando deveriam, é porque o *King Size* não assumiu ainda.  O *King Size*, *ou melhor*, os *King Sizes* sãos os reis maiores do planeta, senhores das terras do Rio de Janeiro. São eles os salvadores que tornarão o serviço das barcas melhor! (Assim que a máfia chinesa parar de atrapalhar...)
+O homem que não tem alma e nem coração, correndo atrás de você, querendo te rasgar...
 
-[![Kingsize de Niterói](http://images.uncyc.org/pt/9/99/Kingsizedorj.PNG)](https://www.youtube.com/watch?v=7tLFbUKVrUo)
+[![Homimacaco](https://i.ytimg.com/vi/GpRh53EwG6Q/hqdefault.jpg)](https://www.youtube.com/watch?v=GpRh53EwG6Q)
 
-E saiba mais sobre essa família tão importante na [enciclopédia](http://desciclopedia.org/wiki/King_Size_do_Rio_de_Janeiro).
+## Num sei!
 
-## John Travolta em Pulp Fiction.
+Num sei fazer descrição também...
 
-Quando a pessoa está em uma situação mas não ta entendendo nada.
+[![Numsei](https://media1.tenor.com/images/21316d1cd9991fff3b5fc30bf1e53154/tenor.gif?itemid=7729857)](https://www.youtube.com/watch?v=CwSGCX9slGs)
 
-[![travolta](https://media.giphy.com/media/gngO1gmBhS9na/giphy.gif)
+## Óh o bichu vindo muleque!
 
-## Bora fechar?
+Gamer jogando Dead Space 2!
 
-Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
+[![Bichovindu](https://i.makeagif.com/media/3-23-2016/tG-L0b.gif)](https://www.youtube.com/watch?v=TYSk9msqLsg)
 
-[![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+## RIP Magrelin
+
+Mãe! Respeita!
+
+[![Magrelin](https://i.ytimg.com/vi/7iJsS-qqvRs/hqdefault.jpg)](https://www.youtube.com/watch?v=9ybdghhWxS0)
+
+## Pistoleiro Papaco
+
+A melhor cena de um duelo de faroeste da história!
+
+[![Papaco](https://thumbs.gfycat.com/JointHardAddax-max-1mb.gif)](https://www.youtube.com/watch?v=0-hj_KGtvRU&t=24s)
+
+## Ce é o bichão mesmo!
+
+Uma mensagem profunda para aquelas pessoas que filmam e falam!
+
+[![Bichao](https://i.makeagif.com/media/6-24-2015/IIgKKj.gif)](https://www.youtube.com/watch?v=MiQ_OSW9pLM)
+
+## Guitarra humana
+
+I think i wanna WHumlelele whelele whumlelelelumlum!
+
+[![Guitarrahumana](https://i.ytimg.com/vi/18hhUcqX3P8/hqdefault.jpg)](https://www.youtube.com/watch?v=18hhUcqX3P8)
+
+## Legal! Bem Louco!
+
+Entrevista muito várzea sobre uma visita no setor agropecuário...Leite!
+
+[![Leite](https://4.bp.blogspot.com/-Sgx0L_-dzEg/V3Zf_7IQtYI/AAAAAAAAAmU/zgnuL3rQql0UVJkygyIet9XalkiP2fzNACLcB/s1600/tumblr_m74kpw0l4R1r29478o1_500%255B1%255D.gif)](https://www.youtube.com/watch?v=PbbXhCRyZVQ)
+
+## Pederneiras ai ai
+
+Uma reportagem sobre a Festa da Uva de Caxias do Sul (RS), em 1996, que marcou a vida do jornalista Lasier Martins.
+
+[![Pederneiras](https://thumbs.gfycat.com/JauntyEnchantingIberianmidwifetoad-max-1mb.gif)](https://www.youtube.com/watch?v=li7afUaMvWk)
+
+## Ao Tavão
+
+Toda a simpatia e graciosidade do povo brasileiro demonstrado em um vídeo. Bom dia!
+
+[![Tavao](https://i.ytimg.com/vi/HTtoxF-X3JQ/hqdefault.jpg)](https://www.youtube.com/watch?v=HTtoxF-X3JQ)
+
+## Não tenho paciência com quem está começando!
+
+Susana Vieira tira o microfone da mão de uma repórter novata.
+
+[![Susana Vieira sem paciencia](https://i.ytimg.com/vi/FnC8Q3aSJQo/hqdefault.jpg)](https://youtu.be/hmh6IYlpd2M)
+
+## Susana Vieira Confiante
+
+Ninguém é mais poderosa do que Susana Vieira, segundo ela mesma.
+
+[![Susana Vieira Confiante](https://img.buzzfeed.com/buzzfeed-static/static/2014-12/3/9/enhanced/webdr11/enhanced-20397-1417615218-7.png)](https://www.youtube.com/watch?v=JLFWEsm2KdM)
+
+## Agrega valor ao camarote
+
+Entrevista com um empresário intitulado "Rei do Camarote"
+
+[![Rei do Camarote](http://images.virgula.com.br/2013/11/04/643268513-o-rei-do-camarote-em-acao789.gif)](https://www.youtube.com/watch?v=atQvZ-nq0Go)
+
+## Errou do Faustão
+
+Quando a inteligência das pessoas não ajuda um programa de domingo a tarde, o apresentador tem que se virar nos 30...
+
+[![Errou!!!](https://i.ytimg.com/vi/2LCM4q6KpdQ/hqdefault.jpg)](https://youtu.be/dmorMyv0VTg?t=61)
+
+## Za Warudo (The World - JOJO)
+
+ZA WARUDO!, ou THE WORLD! É um golpe criado pelo vampiro Dio Brando que possui o poder de paralisar o tempo.
+
+[![Za Warudo](http://img.youtube.com/vi/s7wzJ6EJdvY/0.jpg)](https://www.youtube.com/watch?v=s7wzJ6EJdvY&t)
+
+## Yes - Roundabout / To Be Continued...
+
+Meme baseado no cliffhanger usado ao fim de episodios do anime Jojo’s Bizarre Adventure. 
+
+[![To Be Continued](https://i.makeagif.com/media/5-18-2016/SyNrOL.gif)](https://www.youtube.com/watch?v=4EMJl4sy
+
+## Guardião universal
+
+[![Quando você quebra as regras de ouro, você tem o caos](https://i.ytimg.com/vi/_UT5-6C5l00/hqdefault.jpg)](https://www.youtube.com/watch?v=_UT5-6C5l00)
+
+## Pai de família
+
+Aahhhhhh, que delícia, cara!
+
+[![jailson](https://uploads.spiritfanfics.com/fanfics/historias/201605/fanfiction-originais-pai-de-familia-iv-o-retorno-do-urso-manso-5655098-240520162253.png)](https://www.youtube.com/watch?v=Lu0l5h-Yoqc)
+
+## Shippar
+
+Shippar trata-se do ato de torcer pelo relacionamento amoroso de alguém, normalmente personagens de filmes, seriados, desenhos animados, histórias em quadrinhos, mangás e etc. Shippar é uma expressão criada a partir da palavra inglesa relationship, que significa “relacionamento”, em português.[saiba mais](https://www.significados.com.br/shippar/)
+
+[![Shippar](https://2.bp.blogspot.com/-k2tpOYYROK0/VEaMz9zBwEI/AAAAAAAAFAg/g-CsEeFJ0Pw/s1600/9830060.gif)](https://www.youtube.com/watch?v=CcAkNlxgM18)
+
+## Felipe Smith
+
+Jovem alucinando após rave fala coisas engraçadas e sem sentido enquanto é atendido no hospital
+
+[![Samu? Seu cu](https://j.gifs.com/pQxq8r.gif)](https://www.youtube.com/watch?v=IBFIbRM1gEc&t=32s)
+
+## Pepe, o sapo
+
+Quando bate aquela tristeza repentina...
+
+![pepe](https://i.guim.co.uk/img/media/327e46c3ab049358fad80575146be9e0e65686e7/0_0_1023_742/master/1023.jpg?width=300&quality=85&auto=format&fit=max&s=02632218051da209be64b27e96722c43)
+
+## Jamais será atendido?
+
+Aquele momento que você entende porque a fila não anda.
+
+![Aguarde ser amado](https://cdn.dopl3r.com/memes_files/acho-que-vou-ser-chamado-nunca-aguarde-ser-amado-0AERg.jpg)
+
+## Galinha Rafinha
+
+Reportagem sobre o desaparecimento de uma galinha de estimação.
+
+[![Rafinha](https://pbs.twimg.com/media/DR-CRIaWkAEC_Va.jpg)](https://www.youtube.com/watch?v=w9dbKLw-k0Q)
+
 
 ## Mochilas Gigantes de Jequié
 
@@ -338,3 +466,45 @@ Tamo junto
 Me solta...
 
 ![alien](https://gerarmemes.s3.us-east-2.amazonaws.com/memes/3b5e3fa2.jpg)
+
+## Shake it Bololo
+
+Nada como simplesmente o melhor compilado de funk e coisas aleatórias que só o brasil pode nos oferecer e nos proporcionar, é quase inimaginável quanta histórias cabe apenas nesse pequeno trecho, muito bem acompanhado de uma boa música.
+
+[![Shake it Bololo](https://img.youtube.com/vi/oowBXzfcl90/0.jpg)](https://www.youtube.com/watch?v=oowBXzfcl90)
+
+## Meu querido eu sou cantora
+
+Maísa e mais uma de suas perolas quando criança
+
+[![Eu sou cantora](http://img.youtube.com/vi/PQ-KZxt139Y/0.jpg)](https://www.youtube.com/watch?v=PQ-KZxt139Y)
+
+## Tulla luana - Seguindo a diva no Instagram
+
+[![Menina mulher](https://i.ytimg.com/vi/iJq5QCLiCL0/maxresdefault.jpg)](https://www.youtube.com/watch?v=8zXUkljYsn0)
+
+## Kingsize de Niterói
+
+Com o primeiro pico de buscas no Google em 2008, o *King Size* do Rio de Janeiro é uma figura internética das mais importantes para entender o estado atual das coisas: se as coisas não estão tão bem quando deveriam, é porque o *King Size* não assumiu ainda.  O *King Size*, *ou melhor*, os *King Sizes* sãos os reis maiores do planeta, senhores das terras do Rio de Janeiro. São eles os salvadores que tornarão o serviço das barcas melhor! (Assim que a máfia chinesa parar de atrapalhar...)
+
+[![Kingsize de Niterói](http://images.uncyc.org/pt/9/99/Kingsizedorj.PNG)](https://www.youtube.com/watch?v=7tLFbUKVrUo)
+
+E saiba mais sobre essa família tão importante na [enciclopédia](http://desciclopedia.org/wiki/King_Size_do_Rio_de_Janeiro).
+
+## John Travolta em Pulp Fiction.
+
+Quando a pessoa está em uma situação mas não ta entendendo nada.
+
+[![travolta](https://media.giphy.com/media/gngO1gmBhS9na/giphy.gif)
+
+## Tem raiva do cu?
+
+Excelente ministração do pastor sobre como os fiéis devem lavar o cu.
+
+[![Tem raiva do cu?](https://i.ytimg.com/vi/p7jyJ9YpsgE/hqdefault.jpg)](https://www.youtube.com/watch?v=ny1xNZdvMw4)
+
+## Bora fechar?
+
+Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
+
+[![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
