@@ -496,6 +496,12 @@ Durante uma reportagem do Jornal Hoje, uma repórter é empurrada por três home
 
 [![Que deselegante](https://media.giphy.com/media/dnoi2xJZZKs8w/giphy.gif)](https://www.youtube.com/watch?v=BdR2FVqTf5k)
 
+## Psicopata da Copa
+
+Durante a Copa do Mundo de 2018, Yury Torsky viralizou por ter cara de psicopata e ir ao jogo do Brasil e México com a bandeira do Brasil. No início, pensavam que era brasileiro, mas depois descobriram que ele era russo.
+
+[![Psicopata da copa](https://rims.com.br/uploads/images/2018/07/psicopata-do-hexa-vai-assistir-brasil-x-belgica-a-convite-da-cbf-1530828787.jpg)](https://www.youtube.com/watch?v=EdqEoq42Uk0)
+
 ## Caindo no casos de família
 
 Gabriel dançando de pernas abertas um funk no programa casos de família.
@@ -527,4 +533,3 @@ Excelente ministração do pastor sobre como os fiéis devem lavar o cu.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
-
