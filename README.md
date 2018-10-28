@@ -366,6 +366,18 @@ Aahhhhhh, que delícia, cara!
 
 [![jailson](https://uploads.spiritfanfics.com/fanfics/historias/201605/fanfiction-originais-pai-de-familia-iv-o-retorno-do-urso-manso-5655098-240520162253.png)](https://www.youtube.com/watch?v=Lu0l5h-Yoqc)
 
+## Shippar
+
+Shippar trata-se do ato de torcer pelo relacionamento amoroso de alguém, normalmente personagens de filmes, seriados, desenhos animados, histórias em quadrinhos, mangás e etc. Shippar é uma expressão criada a partir da palavra inglesa relationship, que significa “relacionamento”, em português.[saiba mais](https://www.significados.com.br/shippar/)
+
+[![Shippar](https://2.bp.blogspot.com/-k2tpOYYROK0/VEaMz9zBwEI/AAAAAAAAFAg/g-CsEeFJ0Pw/s1600/9830060.gif)](https://www.youtube.com/watch?v=CcAkNlxgM18)
+
+## Felipe Smith
+
+Jovem alucinando após rave fala coisas engraçadas e sem sentido enquanto é atendido no hospital
+
+[![Samu? Seu cu](https://j.gifs.com/pQxq8r.gif)](https://www.youtube.com/watch?v=IBFIbRM1gEc&t=32s)
+
 ## Pepe, o sapo
 
 Quando bate aquela tristeza repentina...
@@ -419,9 +431,3 @@ Excelente ministração do pastor sobre como os fiéis devem lavar o cu.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
-
-## Felipe Smith
-
-Jovem alucinando após rave fala coisas engraçadas e sem sentido enquanto é atendido no hospital
-
-[![Samu? Seu cu](https://j.gifs.com/pQxq8r.gif)](https://www.youtube.com/watch?v=IBFIbRM1gEc&t=32s)
