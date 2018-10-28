@@ -249,36 +249,11 @@ Eu sou Nissim, Nissim Ourfaaaalii!!
 
 [![Eu sou nissim!](http://media.virgula.com.br/images/2014/08/20/4138894012-meme-do-nissin-orfali.gif)](https://www.youtube.com/watch?v=NhkR44GIjQQ)
 
-## Tulla luana - Seguindo a diva no Instagram
+## CEPO DE MADEIRA
 
-[![Menina mulher](https://i.ytimg.com/vi/iJq5QCLiCL0/maxresdefault.jpg)](https://www.youtube.com/watch?v=8zXUkljYsn0)
+Apresentação de uma brincadeira feita com palitos de fósforos e um cepo de madeira.
 
-## Kingsize de Niterói
-
-Com o primeiro pico de buscas no Google em 2008, o *King Size* do Rio de Janeiro é uma figura internética das mais importantes para entender o estado atual das coisas: se as coisas não estão tão bem quando deveriam, é porque o *King Size* não assumiu ainda.  O *King Size*, *ou melhor*, os *King Sizes* sãos os reis maiores do planeta, senhores das terras do Rio de Janeiro. São eles os salvadores que tornarão o serviço das barcas melhor! (Assim que a máfia chinesa parar de atrapalhar...)
-
-[![Kingsize de Niterói](http://images.uncyc.org/pt/9/99/Kingsizedorj.PNG)](https://www.youtube.com/watch?v=7tLFbUKVrUo)
-
-E saiba mais sobre essa família tão importante na [enciclopédia](http://desciclopedia.org/wiki/King_Size_do_Rio_de_Janeiro).
-
-## John Travolta em Pulp Fiction.
-
-Quando a pessoa está em uma situação mas não ta entendendo nada.
-
-[![travolta](https://media.giphy.com/media/gngO1gmBhS9na/giphy.gif)
-
-## Tem raiva do cu?
-
-Excelente ministração do pastor sobre como os fiéis devem lavar o cu.
-
-[![Tem raiva do cu?](https://i.ytimg.com/vi/p7jyJ9YpsgE/hqdefault.jpg)](https://www.youtube.com/watch?v=ny1xNZdvMw4)
-
-## Bora fechar?
-
-Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
-
-[![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
-
+[![Cepo de madeira](https://i.ytimg.com/vi/WQrTrbMAixk/hqdefault.jpg)](https://www.youtube.com/watch?v=Omwbh6Jo1IM)
 ## Rap do homem macaco
 
 O homem que não tem alma e nem coração, correndo atrás de você, querendo te rasgar...
@@ -326,7 +301,7 @@ I think i wanna WHumlelele whelele whumlelelelumlum!
 Entrevista muito várzea sobre uma visita no setor agropecuário...Leite!
 
 [![Leite](https://4.bp.blogspot.com/-Sgx0L_-dzEg/V3Zf_7IQtYI/AAAAAAAAAmU/zgnuL3rQql0UVJkygyIet9XalkiP2fzNACLcB/s1600/tumblr_m74kpw0l4R1r29478o1_500%255B1%255D.gif)](https://www.youtube.com/watch?v=PbbXhCRyZVQ)
-=======
+
 ## Pederneiras ai ai
 
 Uma reportagem sobre a Festa da Uva de Caxias do Sul (RS), em 1996, que marcou a vida do jornalista Lasier Martins.
@@ -345,7 +320,7 @@ Susana Vieira tira o microfone da mão de uma repórter novata.
 
 [![Susana Vieira sem paciencia](https://i.ytimg.com/vi/FnC8Q3aSJQo/hqdefault.jpg)](https://youtu.be/hmh6IYlpd2M)
 
-##Susana Vieira Confiante
+## Susana Vieira Confiante
 
 Ninguém é mais poderosa do que Susana Vieira, segundo ela mesma.
 
@@ -373,4 +348,34 @@ ZA WARUDO!, ou THE WORLD! É um golpe criado pelo vampiro Dio Brando que possui 
 
 Meme baseado no cliffhanger usado ao fim de episodios do anime Jojo’s Bizarre Adventure. 
 
-[![To Be Continued](https://i.makeagif.com/media/5-18-2016/SyNrOL.gif)](https://www.youtube.com/watch?v=4EMJl4sy-yM)
+[![To Be Continued](https://i.makeagif.com/media/5-18-2016/SyNrOL.gif)](https://www.youtube.com/watch?v=4EMJl4sy
+
+## Tulla luana - Seguindo a diva no Instagram
+
+[![Menina mulher](https://i.ytimg.com/vi/iJq5QCLiCL0/maxresdefault.jpg)](https://www.youtube.com/watch?v=8zXUkljYsn0)
+
+## Kingsize de Niterói
+
+Com o primeiro pico de buscas no Google em 2008, o *King Size* do Rio de Janeiro é uma figura internética das mais importantes para entender o estado atual das coisas: se as coisas não estão tão bem quando deveriam, é porque o *King Size* não assumiu ainda.  O *King Size*, *ou melhor*, os *King Sizes* sãos os reis maiores do planeta, senhores das terras do Rio de Janeiro. São eles os salvadores que tornarão o serviço das barcas melhor! (Assim que a máfia chinesa parar de atrapalhar...)
+
+[![Kingsize de Niterói](http://images.uncyc.org/pt/9/99/Kingsizedorj.PNG)](https://www.youtube.com/watch?v=7tLFbUKVrUo)
+
+E saiba mais sobre essa família tão importante na [enciclopédia](http://desciclopedia.org/wiki/King_Size_do_Rio_de_Janeiro).
+
+## John Travolta em Pulp Fiction.
+
+Quando a pessoa está em uma situação mas não ta entendendo nada.
+
+[![travolta](https://media.giphy.com/media/gngO1gmBhS9na/giphy.gif)
+
+## Tem raiva do cu?
+
+Excelente ministração do pastor sobre como os fiéis devem lavar o cu.
+
+[![Tem raiva do cu?](https://i.ytimg.com/vi/p7jyJ9YpsgE/hqdefault.jpg)](https://www.youtube.com/watch?v=ny1xNZdvMw4)
+
+## Bora fechar?
+
+Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
+
+[![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
