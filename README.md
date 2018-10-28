@@ -273,6 +273,10 @@ Excelente ministração do pastor sobre como os fiéis devem lavar o cu.
 
 [![Tem raiva do cu?](https://i.ytimg.com/vi/p7jyJ9YpsgE/hqdefault.jpg)](https://www.youtube.com/watch?v=ny1xNZdvMw4)
 
+## Laranjo materno - As aventuras de uma mãe certeira e um filho indisciplinado. 
+
+[![Laranjo](https://scontent-gru2-1.xx.fbcdn.net/v/t1.0-9/30221850_1743020642423973_2469560208647412200_n.jpg?_nc_cat=108&_nc_ht=scontent-gru2-1.xx&oh=6261adad3ff4e8ce3989204fbc4c7a3c&oe=5C454E20)
+
 ## Bora fechar?
 
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
