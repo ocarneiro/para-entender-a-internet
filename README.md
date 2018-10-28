@@ -54,7 +54,8 @@ Se te convidarem para jantar e tomar um vinho, cuidado, Marilene!
 
 [![Ja acabou Jessica?](http://pa1.narvii.com/6541/4c4abe735f3a38dd67bec505d4e89761fd95f942_hq.gif)](https://www.youtube.com/watch?v=E40xwYKlZHo)
 
-
+## Sou Faraó
+[![Sou Faraó?](https://i.makeagif.com/media/5-03-2015/Uj2PP0.gif)](https://www.youtube.com/watch?v=n0-HLCrRGHo)
 
 ## E o bambú?
 
