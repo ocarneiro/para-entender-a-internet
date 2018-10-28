@@ -532,10 +532,17 @@ Excelente ministração do pastor sobre como os fiéis devem lavar o cu.
 
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
-[![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+[![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)] (https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+
+## Ronnie Von significa
+
+Será?
+
+[![Significa](http://img.youtube.com/vi/HdB0iJhWIQc/0.jpg)] (https://www.youtube.com/watch?v=HdB0iJhWIQc)
 
 ## É o quê???
 
 Você tá de boas no seu LoLzin quando...
 
 [![EOQ](https://i.ytimg.com/vi/MaW4fY8ScYw/hqdefault.jpg)](https://youtu.be/MaW4fY8ScYw)
+>>>>>>> d9128233964d9a84cb8e761f7050390779b2da61
