@@ -5,8 +5,9 @@ Você já se sentiu excluído por não entender comentários de pessoas na rua e
 
 Seus problemas acabaram! Neste repositório você encontrará as referências que lhe faltam para entender do que as pessoas estão falando.
 
-Sinta-se à vontade para contribuir com pull requests!
+Sinta-se à vontade para contribuir com pull requests! [Instruções.](CONTRIBUTING.md)
 
+Quem quiser adesivos pode me procurar nos eventos!
 
 ## BIRL (Bambam bodybuilder)
 
@@ -86,6 +87,10 @@ Dava pra melhor com certeza, quer dizer que ia mudar melhor, já tava bom, disse
 Oriúndo do animê Hokuto no ken(1983), viralizou nos segundo semestre de 2017. É usado quando alguém aplica um golpe ( verbal ou fisico ) em outro de forma arrasadora. A tradução é " você já está morto! O que?? "
 
 [![## Omae wa mou shindeiru! Nani??](http://img.youtube.com/vi/YSgpU70MZno/0.jpg)](http://www.youtube.com/watch?v=YSgpU70MZno)
+
+## Ai que susto!
+
+[![## Omae wa mou shindeiru! Nani??](http://img.youtube.com/vi/JDz3wuapS_s/0.jpg)](http://www.youtube.com/watch?v=JDz3wuapS_s)
 
 
 ## É uma cilada Bino!
@@ -262,6 +267,12 @@ Quando a pessoa está em uma situação mas não ta entendendo nada.
 
 [![travolta](https://media.giphy.com/media/gngO1gmBhS9na/giphy.gif)
 
+## Tem raiva do cu?
+
+Excelente ministração do pastor sobre como os fiéis devem lavar o cu.
+
+[![Tem raiva do cu?](https://i.ytimg.com/vi/p7jyJ9YpsgE/hqdefault.jpg)](https://www.youtube.com/watch?v=ny1xNZdvMw4)
+
 ## Bora fechar?
 
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
@@ -273,3 +284,21 @@ Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 Entrevista com um empresário intitulado "Rei do Camarote"
 
 [![Rei do Camarote](http://images.virgula.com.br/2013/11/04/643268513-o-rei-do-camarote-em-acao789.gif)](https://www.youtube.com/watch?v=atQvZ-nq0Go)
+
+## Errou do Faustão
+
+Quando a inteligência das pessoas não ajuda um programa de domingo a tarde, o apresentador tem que se virar nos 30...
+
+[![Errou!!!](https://i.ytimg.com/vi/2LCM4q6KpdQ/hqdefault.jpg)](https://youtu.be/dmorMyv0VTg?t=61)
+
+## Za Warudo (The World - JOJO)
+
+ZA WARUDO!, ou THE WORLD! É um golpe criado pelo vampiro Dio Brando que possui o poder de paralisar o tempo.
+
+[![Za Warudo](http://img.youtube.com/vi/s7wzJ6EJdvY/0.jpg)](https://www.youtube.com/watch?v=s7wzJ6EJdvY&t)
+
+## Yes - Roundabout / To Be Continued...
+
+Meme baseado no cliffhanger usado ao fim de episodios do anime Jojo’s Bizarre Adventure. 
+
+[![To Be Continued](https://i.makeagif.com/media/5-18-2016/SyNrOL.gif)](https://www.youtube.com/watch?v=4EMJl4sy-yM)
