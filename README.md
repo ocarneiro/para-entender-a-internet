@@ -490,6 +490,18 @@ Maísa e mais uma de suas perolas quando criança
 
 [![Menina mulher](https://i.ytimg.com/vi/iJq5QCLiCL0/maxresdefault.jpg)](https://www.youtube.com/watch?v=8zXUkljYsn0)
 
+## Que deselegante!
+
+Durante uma reportagem do Jornal Hoje, uma repórter é empurrada por três homens ao vivo. Sandra Annemberg fica indignada e solta: "Que deselegante".
+
+[![Que deselegante](https://media.giphy.com/media/dnoi2xJZZKs8w/giphy.gif)](https://www.youtube.com/watch?v=BdR2FVqTf5k)
+
+## Caindo no casos de família
+
+Gabriel dançando de pernas abertas um funk no programa casos de família.
+
+[![Caindo no casos de  família](https://i.ytimg.com/vi/wXM1kcwmJzs/maxresdefault.jpg)](https://www.youtube.com/watch?v=0ec5Y65kZto)
+
 ## Kingsize de Niterói
 
 Com o primeiro pico de buscas no Google em 2008, o *King Size* do Rio de Janeiro é uma figura internética das mais importantes para entender o estado atual das coisas: se as coisas não estão tão bem quando deveriam, é porque o *King Size* não assumiu ainda.  O *King Size*, *ou melhor*, os *King Sizes* sãos os reis maiores do planeta, senhores das terras do Rio de Janeiro. São eles os salvadores que tornarão o serviço das barcas melhor! (Assim que a máfia chinesa parar de atrapalhar...)
@@ -516,8 +528,3 @@ Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
 
-## Caindo no casos de família
-
-Gabriel dançando de pernas abertas um funk no programa casos de família.
-
-[![Caindo no casos de  família](https://i.ytimg.com/vi/wXM1kcwmJzs/maxresdefault.jpg)](https://www.youtube.com/watch?v=0ec5Y65kZto)
