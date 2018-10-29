@@ -620,3 +620,9 @@ Frase proferida pelo personagem Rogerinho do Ingá, ao enfatizar algo "denunciad
 
 [![Olha a denúncia aqui oh!!](https://www.packdememes.com.br/meme/432a583695f8c0ef3eff77124c051962.jpg)]
 
+## Choque de Cultura - "Me permite um protesto?"
+
+Frase proferida pelo personagem Julinho da Van, ao solicitar a oportunidade de comentar sobre algo.
+
+[![Olha a denúncia aqui oh!!](https://www.packdememes.com.br/meme/ab086aaa8af775c9ef522421b03abe40.jpg)]
+
