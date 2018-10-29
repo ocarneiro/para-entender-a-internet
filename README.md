@@ -671,3 +671,9 @@ Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 Gordinho mostra todo valor do seu outfit
 
 [![Outfit](https://media1.tenor.com/images/856dedf10849fc68f009f0159479152c/tenor.gif?itemid=11944888)](https://www.youtube.com/watch?v=u6b_T0aZnVY)
+
+## Vinicius Jr cantando pagode
+
+Ela é uma boa menina... Vamos pular....
+
+[![Vinicius Jr](https://www.torcedores.com/content/uploads/2018/10/Vinicius-Jr1.jpg)](https://youtu.be/kv96Y0kS7Ns)
