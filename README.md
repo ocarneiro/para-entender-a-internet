@@ -541,18 +541,6 @@ Quando você está esperando que o Goku chegue e salve o planeta terra, mas é s
 
 [![Tiririca chega e ninguém espera por isso](https://uploaddeimagens.com.br/images/001/680/500/original/tiririca.PNG?1540090894)](https://youtu.be/kvgFFbbvBPs)
 
-## Nutella
-
-A pessoa nutella gosta de coisas "fancy" e gosta de se sentir popular/atualizado. Pode ser aplicado em varios contextos.
-
-![Nutella](https://target.scene7.com/is/image/Target/GUEST_8a9eb8dd-7070-478e-85c2-bc53deb02227?wid=488&hei=488&fmt=pjpeg)
-
-## Raiz
-
-A pessoa raiz gosta de coisas feitas de forma "tradicional". Pode ser aplicado em vários contextos.
-
-![Raiz](https://www.saludcasera.com/wp-content/uploads/2016/06/raiz-de-ashwagandha.jpg)
-
 ## Você é o bichão mesmo, hein doido?
 
 SUSPEITO responde ironicamente ao jornalista.
@@ -671,3 +659,21 @@ Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 Gordinho mostra todo valor do seu outfit
 
 [![Outfit](https://media1.tenor.com/images/856dedf10849fc68f009f0159479152c/tenor.gif?itemid=11944888)](https://www.youtube.com/watch?v=u6b_T0aZnVY)
+
+## Nutella
+
+A pessoa nutella gosta de coisas "fancy" e gosta de se sentir popular/atualizado. Pode ser aplicado em varios contextos.
+
+![Nutella](https://target.scene7.com/is/image/Target/GUEST_8a9eb8dd-7070-478e-85c2-bc53deb02227?wid=488&hei=488&fmt=pjpeg)
+
+## Raiz
+
+A pessoa raiz gosta de coisas feitas de forma "tradicional". Pode ser aplicado em vários contextos.
+
+![Raiz](https://www.saludcasera.com/wp-content/uploads/2016/06/raiz-de-ashwagandha.jpg)
+
+## Absolutely Barbaric
+
+Esse meme deve ser utilizado quando alguem faz algo totalmente fora do "normal" ou do "padrao". Essa pessoa eh dita uma barbara! Exemplo: essa imagem poderia ser enviada para alguem que coloca o feijao antes do arroz na montagem do prato.
+
+![Barbaric](https://pics.me.me/absolutely-barbaric-27770087.png)
