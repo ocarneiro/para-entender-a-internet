@@ -535,6 +535,12 @@ Você tá de boas no seu LoLzin quando...
 
 [![EOQ](https://i.ytimg.com/vi/MaW4fY8ScYw/hqdefault.jpg)](https://youtu.be/MaW4fY8ScYw)
 
+## Ronaldo brilha muito no curinthia
+
+Zina muito louco, topando tudo e soltando o lendário "rolando brilha muito no curinthia"
+
+[![topo pq não?](https://i.ytimg.com/vi/rGvt-5tj9EU/hqdefault.jpg)](https://www.youtube.com/watch?v=rGvt-5tj9EU)
+
 ## Sou eu! O tiririca!!
 
 Quando você está esperando que o Goku chegue e salve o planeta terra, mas é só Tiririca mesmo.
