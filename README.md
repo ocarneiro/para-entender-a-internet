@@ -689,3 +689,9 @@ Um husk pode ser conhecido como "Moon Moon" na internet. Ainda mais quando ele f
 Essa coisa fofa viralizou na internet como o simbolo de pura vitoria! Muito usado quando conseguimos atingir ou ate ultrapassar nossas metas.
 
 ![BabyMeme](https://hips.hearstapps.com/cosmouk.cdnds.net/15/31/1438173668-cute-success-kid.jpg?crop=1xw:1.0xh;center,top&resize=480:*)
+
+## Poker Face
+
+Classico dos classicos. Preciso mesmo explicar o poker face? Quando voce nao tiver ideia do que fazer: Poker face '-'
+
+![Pokerface](https://i.kym-cdn.com/entries/icons/original/000/003/193/teddy-bear-poker-face.jpg)
