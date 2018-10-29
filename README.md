@@ -705,3 +705,7 @@ Quando a babá malvada que agredia crianças saiu na rua, nosso herói entrou em
 ## Tô cagado de fome
 
 [![To cagado de fome](http://www.videosnowhats.com/painel/files/34D90.jpg)](https://www.youtube.com/watch?v=MM4U4RH2s64)
+
+## Irineu, você não sabe nem eu!
+
+[![IRINEU](https://i.ytimg.com/vi/1vFk3u0pac4/maxresdefault.jpg)](https://www.youtube.com/watch?v=Hebw7Mw_WAg)
