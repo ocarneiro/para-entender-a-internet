@@ -546,3 +546,12 @@ Excelente ministração do pastor sobre como os fiéis devem lavar o cu.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+
+
+## Senhora?, Senhora?!, Senhora?!?!
+Funcionária publica é entrevistada por jornalista sobre ela só bater o ponto e sair correndo da jornalista e a jornalista persegue ela.
+
+
+[![Senhora funcionária publica](https://imgsapp2.uai.com.br/app/noticia_133890394703/2015/09/29/172366/20150929145905942301e.jpg)](https://www.youtube.com/watch?v=GdxPGO10fG4)
+
+
