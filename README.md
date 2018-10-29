@@ -582,3 +582,9 @@ Quando você resolve aquele erro simples no código.(Personagem do filme Kung Fu
 Slogan de uma propaganda do início dos anos 2000.
 
 [![feiticaria](https://d3hyqo1pjnhp1v.cloudfront.net/n49shopv2_seuscabelos/images/article/sddefault.jpg)](https://www.youtube.com/watch?v=N0oRYCivKrs)
+
+## It's been 84 years.
+
+Cena do filme TITANIC | 1997
+
+[![eightyfour](https://j.gifs.com/4x0APV.gif)](https://www.youtube.com/watch?v=7tectqamOkc)
