@@ -576,3 +576,9 @@ SUSPEITO responde ironicamente ao jornalista.
 Quando você resolve aquele erro simples no código.(Personagem do filme Kung Fury | 2015)
 
 [![HACKERMAN](https://ih0.redbubble.net/image.175665193.4068/mp,550x550,matte,ffffff,t.3u2.jpg)](https://www.youtube.com/watch?v=fQGbXmkSArs)
+
+## Não é feitiçaria, é tecnologia!
+
+Slogan de uma propaganda do início dos anos 2000.
+
+[![feiticaria](https://d3hyqo1pjnhp1v.cloudfront.net/n49shopv2_seuscabelos/images/article/sddefault.jpg)](https://www.youtube.com/watch?v=N0oRYCivKrs)
