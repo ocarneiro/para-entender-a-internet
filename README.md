@@ -283,6 +283,14 @@ Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
 
+## gastando dinheiro com tudo
+
+[![meme de thallys](https://scontent.fcpv2-1.fna.fbcdn.net/v/t1.15752-9/44913709_315835449001423_7547304845372293120_n.jpg?_nc_cat=102&_nc_ht=scontent.fcpv2-1.fna&oh=11dd48a1469a64574de30491c2e4aa7a&oe=5C7D744D)
+
+## Mas mãe...
+
+[![fantasia](https://scontent-gru2-1.xx.fbcdn.net/v/t1.15752-9/44898835_2238314073046655_4083282260789297152_n.png?_nc_cat=102&_nc_ht=scontent-gru2-1.xx&oh=3aa2eb1eaa67f46ae8b6346e9a0974f7&oe=5C3EC07A)
+
 ## Errou do Faustão
 
 Quando a inteligência das pessoas não ajuda um programa de domingo a tarde, o apresentador tem que se virar nos 30...
