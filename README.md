@@ -660,10 +660,6 @@ Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
 
-## Gordinho do Outfit
-
-Gordinho mostra todo valor do seu outfit
-
 [![Outfit](https://media1.tenor.com/images/856dedf10849fc68f009f0159479152c/tenor.gif?itemid=11944888)](https://www.youtube.com/watch?v=u6b_T0aZnVY)
 
 ## Nutella
@@ -727,3 +723,21 @@ Quando a babá malvada que agredia crianças saiu na rua, nosso herói entrou em
 ## Vou xingar muito no twitter
 
 [![Xingar no twitter](https://pbs.twimg.com/media/CgHZNacXIAAwqNU.jpg)](https://youtu.be/yRzrhzeusvU?t=107)
+
+## Gordinho do Outfit
+
+Gordinho mostra todo valor do seu outfit
+
+[![EOQ](https://i.ytimg.com/vi/MaW4fY8ScYw/hqdefault.jpg)](https://youtu.be/MaW4fY8ScYw)
+
+## Meu pai é o Thor
+
+Vergonha alhei de ter um pai assim
+
+[![ThorFather](http://cdn.naosalvo.com.br/2011/06/filmethor2.jpg)](https://youtu.be/EdCBVhrvDjE)
+
+## Dilma fala bem
+
+Galera, eu votei nela, mas tenho que admitir. Ela é uma comédia.
+
+[![Dilma](https://cdn.pensador.com/img/frase/di/lm/dilma_rousseff_nao_acho_que_quem_ganhar_ou_quem_perder_lqlgvpd.jpg)](https://www.youtube.com/watch?v=rnGcJCxJr1U)
