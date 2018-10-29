@@ -695,3 +695,13 @@ Essa coisa fofa viralizou na internet como o simbolo de pura vitoria! Muito usad
 Classico dos classicos. Preciso mesmo explicar o poker face? Quando voce nao tiver ideia do que fazer: Poker face '-'
 
 ![Pokerface](https://i.kym-cdn.com/entries/icons/original/000/003/193/teddy-bear-poker-face.jpg)
+
+## Lindomar, o Sub-zero Brasileiro
+
+Quando a babá malvada que agredia crianças saiu na rua, nosso herói entrou em ação.
+
+[![LINDOMAR](http://www.museudememes.com.br/wp-content/uploads/2017/03/lindomar-sub.jpg)](https://www.youtube.com/watch?v=OM4mw1q5PP4)
+
+## Tô cagado de fome
+
+[![To cagado de fome](http://www.videosnowhats.com/painel/files/34D90.jpg)](https://www.youtube.com/watch?v=MM4U4RH2s64)
