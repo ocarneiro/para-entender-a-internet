@@ -677,3 +677,9 @@ A pessoa raiz gosta de coisas feitas de forma "tradicional". Pode ser aplicado e
 Esse meme deve ser utilizado quando alguem faz algo totalmente fora do "normal" ou do "padrao". Essa pessoa eh dita uma barbara! Exemplo: essa imagem poderia ser enviada para alguem que coloca o feijao antes do arroz na montagem do prato.
 
 ![Barbaric](https://pics.me.me/absolutely-barbaric-27770087.png)
+
+## Moon Moon
+
+Um husk pode ser conhecido como "Moon Moon" na internet. Ainda mais quando ele faz coisas estranhas.
+
+![MoonMoon](https://i.ytimg.com/vi/Bc658p8pmL4/hqdefault.jpg)
