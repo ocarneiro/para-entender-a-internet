@@ -714,3 +714,7 @@ Quando a babá malvada que agredia crianças saiu na rua, nosso herói entrou em
 
 [![gravida](https://observatoriodatelevisao.bol.uol.com.br/wp-content/uploads/2018/03/edu-guedes-e-a-gravida-de-taubate.jpg)](https://www.youtube.com/watch?v=ch7_m_IT_vY)
 
+## Puta falta de sacanagem
+
+[![falta de sacanagem](http://1.bp.blogspot.com/_OxHsI7USKdE/S_SLc4eX_jI/AAAAAAAAAXw/M6B84Bk4Rpw/s1600/falta+de+sacanagem.jpg)](https://www.youtube.com/watch?v=d_L_yoI7buE)
+
