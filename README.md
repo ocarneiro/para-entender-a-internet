@@ -753,3 +753,9 @@ Um cara que tem respostas gentis para tudo.
 Grandes pensamentos da sabedoria mexicana do nosso eterno herói
 
 [![ChapoSinc](http://www.museudememes.com.br/wp-content/uploads/2015/01/chapolim.jpg)]
+
+## Chapolin Sincero contra-ataca
+
+Novamente, pérolas do pensamento chapoliônico: conselhos para fofinhos.
+
+[![ChapoSinc](http://www.joaoalberto.com/wp-content/uploads/2017/01/31/chapolin1.jpg)]
