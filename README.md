@@ -741,3 +741,9 @@ Vergonha alhei de ter um pai assim
 Galera, eu votei nela, mas tenho que admitir. Ela é uma comédia.
 
 [![Dilma](https://cdn.pensador.com/img/frase/di/lm/dilma_rousseff_nao_acho_que_quem_ganhar_ou_quem_perder_lqlgvpd.jpg)](https://www.youtube.com/watch?v=rnGcJCxJr1U)
+
+## Seu Lunga, ícone do Nordeste
+
+Um cara que tem respostas gentis para tudo.
+
+[![SeuLunga](https://images2.memedroid.com/images/UPLOADED55/522dfc183a9d6.jpeg)](https://www.youtube.com/watch?v=rUlcLG4zhCM)
