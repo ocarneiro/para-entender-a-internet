@@ -730,6 +730,12 @@ Gordinho mostra todo valor do seu outfit
 
 [![Outfit](https://media1.tenor.com/images/856dedf10849fc68f009f0159479152c/tenor.gif?itemid=11944888)](https://www.youtube.com/watch?v=u6b_T0aZnVY)
 
+## O grande poeta Galo Cego
+
+Nada haver, irmão!
+
+[![Galo Cego](https://media1.tenor.com/images/66c0d987df840dd40a4852a8d6913b7e/tenor.gif)](https://www.youtube.com/watch?v=hAx4Lql_-VI)
+
 ## Vinicius Jr cantando pagode
 
 Ela é uma boa menina... Vamos pular....
