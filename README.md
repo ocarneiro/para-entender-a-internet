@@ -772,3 +772,9 @@ Grandes pensamentos da sabedoria mexicana do nosso eterno herói
 Novamente, pérolas do pensamento chapoliônico: conselhos para fofinhos.
 
 [![ChapoSinc](http://www.joaoalberto.com/wp-content/uploads/2017/01/31/chapolin1.jpg)]
+
+## Swing
+
+Swingueira
+
+[![Swing](http://oliverartelucas.com.br/wp-content/uploads/2015/03/ezgif.com-resize.gif)]
