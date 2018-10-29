@@ -261,6 +261,11 @@ Com o primeiro pico de buscas no Google em 2008, o *King Size* do Rio de Janeiro
 
 E saiba mais sobre essa família tão importante na [enciclopédia](http://desciclopedia.org/wiki/King_Size_do_Rio_de_Janeiro).
 
+## gastando dinheiro com tudo
+
+[![meme de thallys](https://scontent.fcpv2-1.fna.fbcdn.net/v/t1.15752-9/44913709_315835449001423_7547304845372293120_n.jpg?_nc_cat=102&_nc_ht=scontent.fcpv2-1.fna&oh=11dd48a1469a64574de30491c2e4aa7a&oe=5C7D744D)
+
+
 ## John Travolta em Pulp Fiction.
 
 Quando a pessoa está em uma situação mas não ta entendendo nada.
@@ -283,9 +288,6 @@ Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
 
-## gastando dinheiro com tudo
-
-[![meme de thallys](https://scontent.fcpv2-1.fna.fbcdn.net/v/t1.15752-9/44913709_315835449001423_7547304845372293120_n.jpg?_nc_cat=102&_nc_ht=scontent.fcpv2-1.fna&oh=11dd48a1469a64574de30491c2e4aa7a&oe=5C7D744D)
 
 ## Mas mãe...
 
