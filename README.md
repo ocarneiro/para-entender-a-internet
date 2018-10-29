@@ -772,3 +772,9 @@ Grandes pensamentos da sabedoria mexicana do nosso eterno herói
 Novamente, pérolas do pensamento chapoliônico: conselhos para fofinhos.
 
 [![ChapoSinc](http://www.joaoalberto.com/wp-content/uploads/2017/01/31/chapolin1.jpg)]
+
+## Melhor Gif do Mundo
+
+Eu quando acho dinheiro na roupa
+
+[![THEBEST](https://gph.is/1IH3RW6)]
