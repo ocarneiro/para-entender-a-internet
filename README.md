@@ -583,30 +583,9 @@ Frase tirada de uma esquete do Hermes & Renato. (Personagem - Charlinho).
 
 [![batataeestudar](https://i.ytimg.com/vi/_z1uo1HxnGg/hqdefault.jpg)](https://www.youtube.com/watch?v=B6Vyhtvpp4k&t)
 
+## Gordinho Jaguatirica
 
-## Bongo Cat
-
-Esse gato toca muito \\^o^/
-
-[![Bongo Cat Memes](https://i.ytimg.com/vi/g_aXobIyA2I/hqdefault.jpg)](https://www.youtube.com/watch?v=5fCM0Ttx0WA)
-
-## Senhora?, Senhora?!, Senhora?!?!
-
-Funcionária publica é entrevistada por jornalista sobre ela só bater o ponto e sair correndo da jornalista e a jornalista persegue ela.
-
-[![Senhora funcionária publica](https://imgsapp2.uai.com.br/app/noticia_133890394703/2015/09/29/172366/20150929145905942301e.jpg)](https://www.youtube.com/watch?v=GdxPGO10fG4)
-
-## Tem raiva do cu?
-
-Excelente ministração do pastor sobre como os fiéis devem lavar o cu.
-
-[![Tem raiva do cu?](https://i.ytimg.com/vi/p7jyJ9YpsgE/hqdefault.jpg)](https://www.youtube.com/watch?v=ny1xNZdvMw4)
-
-## Bora fechar?
-
-Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
-
-[![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+[![Gordinho Jaguatirica](https://media1.tenor.com/images/b9ed4063766ed0ceeb65e66a9047041e/tenor.gif?itemid=11814576)](https://www.youtube.com/watch?v=OE0Fe2Snktc)
 
 ## Choque de Cultura - "Me vejo obrigado a concordar com o palestrinha"
 
@@ -632,3 +611,26 @@ Frase proferida pelo personagem Renan, ao comentar a mudança de algumas pessoas
 
 [![Olha a denúncia aqui oh!!](https://www.packdememes.com.br/meme/064e547ac1e32c6f27b6581a3f3ff394.jpg)]
 
+## Bongo Cat
+
+Esse gato toca muito \\^o^/
+
+[![Bongo Cat Memes](https://i.ytimg.com/vi/g_aXobIyA2I/hqdefault.jpg)](https://www.youtube.com/watch?v=5fCM0Ttx0WA)
+
+## Senhora?, Senhora?!, Senhora?!?!
+
+Funcionária publica é entrevistada por jornalista sobre ela só bater o ponto e sair correndo da jornalista e a jornalista persegue ela.
+
+[![Senhora funcionária publica](https://imgsapp2.uai.com.br/app/noticia_133890394703/2015/09/29/172366/20150929145905942301e.jpg)](https://www.youtube.com/watch?v=GdxPGO10fG4)
+
+## Tem raiva do cu?
+
+Excelente ministração do pastor sobre como os fiéis devem lavar o cu.
+
+[![Tem raiva do cu?](https://i.ytimg.com/vi/p7jyJ9YpsgE/hqdefault.jpg)](https://www.youtube.com/watch?v=ny1xNZdvMw4)
+
+## Bora fechar?
+
+Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
+
+[![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
