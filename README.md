@@ -617,6 +617,37 @@ Esse gato toca muito \\^o^/
 
 [![Bongo Cat Memes](https://i.ytimg.com/vi/g_aXobIyA2I/hqdefault.jpg)](https://www.youtube.com/watch?v=5fCM0Ttx0WA)
 
+## O melhor do nordeste no YouTube
+
+O canal do YouTube se chama Keké Isso na TV e contém duas estrelinhas chamadas Irene e Zuzu. Começou com aulas da Dona Irene e hoje tem temas diversificados, mas mantendo o gênero do humor.
+
+![DonaIrene](https://media.giphy.com/media/bMJ0VU9VGFiCc/giphy.gif)
+
+## Tive Irene
+
+Na série do YouTube Girls In The House, criada no The Sims por Raony Phillips, há uma cabeleireira chamada Irene conhecida por deixar as pessoas careca quando vão no seu salão. Então quando alguém volta de um salão e o corte não deu certo: diz-se que teve Irene.
+
+![TiveIrene](https://pm1.narvii.com/6831/56277d6ce5e968cd8c42ff320b65ab67e9d76a92v2_hq.jpg)
+
+## Movimento #EleNão
+
+Durante as eleições brasileiros de 2018 surgiu um movimento chamado #EleNão, aderido por pessoa que são contra o candidato Jair Bolsonaro.
+
+![EleNão](https://i1.wp.com/www.botequimdeideias.com.br/flogase/wp-content/uploads/2018/09/artigo-elenao.jpg?fit=540%2C300)
+
+## Mc Loma e as Gêmeas Lacração
+
+O trio surgiu no carnaval com uma série de memes por meio das músicas. As meninas de Recife-PE bombaram com as gírias: Cebruthius e Escama só de Peixe UAII. Cebruthius era a palavra que a cantora Loma entendia quando a caixinha de som JBL ligava, que na verdade era a frase "The bluetooh device is ready to pai". Já "Escama só de peixe" é quando alguém está se achando e você diz "Escama é só de peixe, bebê".
+
+![McLoma](https://img.buzzfeed.com/buzzfeed-static/static/2018-02/11/12/asset/buzzfeed-prod-fastlane-03/anigif_sub-buzz-25150-1518370621-6.gif?crop=176:143;73,37)
+
+## Inês Brasil: O meme ambulante
+
+"Segura a marimba monamu" "Se me ataca eu vou ataca" "Bata na sua cara antes que eu bata" e por aí vai...
+
+![Inês Brasil](https://i.pinimg.com/originals/da/34/63/da34637550276da6734c385bdcdf9655.jpg)
+
+
 ## Senhora?, Senhora?!, Senhora?!?!
 
 Funcionária publica é entrevistada por jornalista sobre ela só bater o ponto e sair correndo da jornalista e a jornalista persegue ela.
@@ -635,28 +666,8 @@ Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
 
-## O melhor do nordeste no YouTube
+## Gordinho do Outfit
 
-O canal do YouTube se chama Keké Isso na TV e contém duas estrelinhas chamadas Irene e Zuzu. Começou com aulas da Dona Irene e hoje tem temas diversificados, mas mantendo o gênero do humor.
+Gordinho mostra todo valor do seu outfit
 
-![DonaIrene](https://media.giphy.com/media/bMJ0VU9VGFiCc/giphy.gif)
-
-## Tive Irene
-Na série do YouTube Girls In The House, criada no The Sims por Raony Phillips, há uma cabeleireira chamada Irene conhecida por deixar as pessoas careca quando vão no seu salão. Então quando alguém volta de um salão e o corte não deu certo: diz-se que teve Irene.
-
-![TiveIrene](https://pm1.narvii.com/6831/56277d6ce5e968cd8c42ff320b65ab67e9d76a92v2_hq.jpg)
-
-## Movimento #EleNão
-Durante as eleições brasileiros de 2018 surgiu um movimento chamado #EleNão, aderido por pessoa que são contra o candidato Jair Bolsonaro.
-
-![EleNão](https://i1.wp.com/www.botequimdeideias.com.br/flogase/wp-content/uploads/2018/09/artigo-elenao.jpg?fit=540%2C300)
-
-## Mc Loma e as Gêmeas Lacração
-O trio surgiu no carnaval com uma série de memes por meio das músicas. As meninas de Recife-PE bombaram com as gírias: Cebruthius e Escama só de Peixe UAII. Cebruthius era a palavra que a cantora Loma entendia quando a caixinha de som JBL ligava, que na verdade era a frase "The bluetooh device is ready to pai". Já "Escama só de peixe" é quando alguém está se achando e você diz "Escama é só de peixe, bebê".
-
-![McLoma](https://img.buzzfeed.com/buzzfeed-static/static/2018-02/11/12/asset/buzzfeed-prod-fastlane-03/anigif_sub-buzz-25150-1518370621-6.gif?crop=176:143;73,37)
-
-## Inês Brasil: O meme ambulante
-"Segura a marimba monamu" "Se me ataca eu vou ataca" "Bata na sua cara antes que eu bata" e por aí vai...
-
-![Inês Brasil](https://i.pinimg.com/originals/da/34/63/da34637550276da6734c385bdcdf9655.jpg)
+[![Outfit](https://media1.tenor.com/images/856dedf10849fc68f009f0159479152c/tenor.gif?itemid=11944888)](https://www.youtube.com/watch?v=u6b_T0aZnVY)
