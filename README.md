@@ -535,23 +535,17 @@ Você tá de boas no seu LoLzin quando...
 
 [![EOQ](https://i.ytimg.com/vi/MaW4fY8ScYw/hqdefault.jpg)](https://youtu.be/MaW4fY8ScYw)
 
+## Ronaldo brilha muito no curinthia
+
+Zina muito louco, topando tudo e soltando o lendário "rolando brilha muito no curinthia"
+
+[![topo pq não?](https://i.ytimg.com/vi/rGvt-5tj9EU/hqdefault.jpg)](https://www.youtube.com/watch?v=rGvt-5tj9EU)
+
 ## Sou eu! O tiririca!!
 
 Quando você está esperando que o Goku chegue e salve o planeta terra, mas é só Tiririca mesmo.
 
 [![Tiririca chega e ninguém espera por isso](https://uploaddeimagens.com.br/images/001/680/500/original/tiririca.PNG?1540090894)](https://youtu.be/kvgFFbbvBPs)
-
-## Nutella
-
-A pessoa nutella gosta de coisas "fancy" e gosta de se sentir popular/atualizado. Pode ser aplicado em varios contextos.
-
-![Nutella](https://target.scene7.com/is/image/Target/GUEST_8a9eb8dd-7070-478e-85c2-bc53deb02227?wid=488&hei=488&fmt=pjpeg)
-
-## Raiz
-
-A pessoa raiz gosta de coisas feitas de forma "tradicional". Pode ser aplicado em vários contextos.
-
-![Raiz](https://www.saludcasera.com/wp-content/uploads/2016/06/raiz-de-ashwagandha.jpg)
 
 ## Você é o bichão mesmo, hein doido?
 
@@ -666,6 +660,70 @@ Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
 
+[![Outfit](https://media1.tenor.com/images/856dedf10849fc68f009f0159479152c/tenor.gif?itemid=11944888)](https://www.youtube.com/watch?v=u6b_T0aZnVY)
+
+## Nutella
+
+A pessoa nutella gosta de coisas "fancy" e gosta de se sentir popular/atualizado. Pode ser aplicado em varios contextos.
+
+![Nutella](https://target.scene7.com/is/image/Target/GUEST_8a9eb8dd-7070-478e-85c2-bc53deb02227?wid=488&hei=488&fmt=pjpeg)
+
+## Raiz
+
+A pessoa raiz gosta de coisas feitas de forma "tradicional". Pode ser aplicado em vários contextos.
+
+![Raiz](https://www.saludcasera.com/wp-content/uploads/2016/06/raiz-de-ashwagandha.jpg)
+
+## Absolutely Barbaric
+
+Esse meme deve ser utilizado quando alguem faz algo totalmente fora do "normal" ou do "padrao". Essa pessoa eh dita uma barbara! Exemplo: essa imagem poderia ser enviada para alguem que coloca o feijao antes do arroz na montagem do prato.
+
+![Barbaric](https://pics.me.me/absolutely-barbaric-27770087.png)
+
+## Moon Moon
+
+Um husk pode ser conhecido como "Moon Moon" na internet. Ainda mais quando ele faz coisas estranhas.
+
+![MoonMoon](https://i.ytimg.com/vi/Bc658p8pmL4/hqdefault.jpg)
+
+## I did it! (Eu consegui!)
+
+Essa coisa fofa viralizou na internet como o simbolo de pura vitoria! Muito usado quando conseguimos atingir ou ate ultrapassar nossas metas.
+
+![BabyMeme](https://hips.hearstapps.com/cosmouk.cdnds.net/15/31/1438173668-cute-success-kid.jpg?crop=1xw:1.0xh;center,top&resize=480:*)
+
+## Poker Face
+
+Classico dos classicos. Preciso mesmo explicar o poker face? Quando voce nao tiver ideia do que fazer: Poker face '-'
+
+![Pokerface](https://i.kym-cdn.com/entries/icons/original/000/003/193/teddy-bear-poker-face.jpg)
+
+## Lindomar, o Sub-zero Brasileiro
+
+Quando a babá malvada que agredia crianças saiu na rua, nosso herói entrou em ação.
+
+[![LINDOMAR](http://www.museudememes.com.br/wp-content/uploads/2017/03/lindomar-sub.jpg)](https://www.youtube.com/watch?v=OM4mw1q5PP4)
+
+## Tô cagado de fome
+
+[![To cagado de fome](http://www.videosnowhats.com/painel/files/34D90.jpg)](https://www.youtube.com/watch?v=MM4U4RH2s64)
+
+## Irineu, você não sabe nem eu!
+
+[![IRINEU](https://i.ytimg.com/vi/1vFk3u0pac4/maxresdefault.jpg)](https://www.youtube.com/watch?v=Hebw7Mw_WAg)
+
+## Grávida de Taubaté
+
+[![gravida](https://observatoriodatelevisao.bol.uol.com.br/wp-content/uploads/2018/03/edu-guedes-e-a-gravida-de-taubate.jpg)](https://www.youtube.com/watch?v=ch7_m_IT_vY)
+
+## Puta falta de sacanagem
+
+[![falta de sacanagem](http://1.bp.blogspot.com/_OxHsI7USKdE/S_SLc4eX_jI/AAAAAAAAAXw/M6B84Bk4Rpw/s1600/falta+de+sacanagem.jpg)](https://www.youtube.com/watch?v=d_L_yoI7buE)
+
+## Vou xingar muito no twitter
+
+[![Xingar no twitter](https://pbs.twimg.com/media/CgHZNacXIAAwqNU.jpg)](https://youtu.be/yRzrhzeusvU?t=107)
+
 ## Gordinho do Outfit
 
 Gordinho mostra todo valor do seu outfit
@@ -677,3 +735,34 @@ Gordinho mostra todo valor do seu outfit
 Ela é uma boa menina... Vamos pular....
 
 [![Vinicius Jr](https://www.torcedores.com/content/uploads/2018/10/Vinicius-Jr1.jpg)](https://youtu.be/kv96Y0kS7Ns)
+[![EOQ](https://i.ytimg.com/vi/MaW4fY8ScYw/hqdefault.jpg)](https://youtu.be/MaW4fY8ScYw)
+
+## Meu pai é o Thor
+
+Vergonha alhei de ter um pai assim
+
+[![ThorFather](http://cdn.naosalvo.com.br/2011/06/filmethor2.jpg)](https://youtu.be/EdCBVhrvDjE)
+
+## Dilma fala bem
+
+Galera, eu votei nela, mas tenho que admitir. Ela é uma comédia.
+
+[![Dilma](https://cdn.pensador.com/img/frase/di/lm/dilma_rousseff_nao_acho_que_quem_ganhar_ou_quem_perder_lqlgvpd.jpg)](https://www.youtube.com/watch?v=rnGcJCxJr1U)
+
+## Seu Lunga, ícone do Nordeste
+
+Um cara que tem respostas gentis para tudo.
+
+[![SeuLunga](https://images2.memedroid.com/images/UPLOADED55/522dfc183a9d6.jpeg)](https://www.youtube.com/watch?v=rUlcLG4zhCM)
+
+## Chapolin Sincero
+
+Grandes pensamentos da sabedoria mexicana do nosso eterno herói
+
+[![ChapoSinc](http://www.museudememes.com.br/wp-content/uploads/2015/01/chapolim.jpg)]
+
+## Chapolin Sincero contra-ataca
+
+Novamente, pérolas do pensamento chapoliônico: conselhos para fofinhos.
+
+[![ChapoSinc](http://www.joaoalberto.com/wp-content/uploads/2017/01/31/chapolin1.jpg)]
