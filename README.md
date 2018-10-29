@@ -564,3 +564,9 @@ Excelente ministração do pastor sobre como os fiéis devem lavar o cu.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+
+## Você é o bichão mesmo, hein doido?
+
+SUSPEITO responde ironicamente ao jornalista.
+
+[![voce e o bichao MEME](https://i.ytimg.com/vi/MiQ_OSW9pLM/hqdefault.jpg)](https://www.youtube.com/watch?v=MiQ_OSW9pLM)
