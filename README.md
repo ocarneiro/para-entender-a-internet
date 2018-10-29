@@ -156,6 +156,7 @@ Edição especial Pybr13!
 ## O importante é não deixar o forninho cair!
 
 O forninho caiuuu!!
+
 [![## Eita giovanaaaa](https://i.ytimg.com/vi/U5P3raTyKKA/hqdefault.jpg)](https://www.youtube.com/watch?v=U5P3raTyKKA)
 
 
@@ -522,6 +523,131 @@ Quando a pessoa está em uma situação mas não ta entendendo nada.
 
 [![travolta](https://media.giphy.com/media/gngO1gmBhS9na/giphy.gif)
 
+## João Paulo tristão.
+
+Como já dizia o grande filósofo contemporâneo João Paulo: A vontade de rir é grande mas a de chorar é maior.
+
+[![Joao Paulo](https://em.wattpad.com/0cd4ba7cc41cf55dbe5299d0d205e98c1be32d16/68747470733a2f2f73332e616d617a6f6e6177732e636f6d2f776174747061642d6d656469612d736572766963652f53746f7279496d6167652f32745a39594b754d6339486a4d673d3d2d3234312e313466336638616430373463333530663131353130303835323936362e6a7067?s=fit&w=720&h=720)]
+
+## É o quê???
+
+Você tá de boas no seu LoLzin quando...
+
+[![EOQ](https://i.ytimg.com/vi/MaW4fY8ScYw/hqdefault.jpg)](https://youtu.be/MaW4fY8ScYw)
+
+## Ronaldo brilha muito no curinthia
+
+Zina muito louco, topando tudo e soltando o lendário "rolando brilha muito no curinthia"
+
+[![topo pq não?](https://i.ytimg.com/vi/rGvt-5tj9EU/hqdefault.jpg)](https://www.youtube.com/watch?v=rGvt-5tj9EU)
+
+## Sou eu! O tiririca!!
+
+Quando você está esperando que o Goku chegue e salve o planeta terra, mas é só Tiririca mesmo.
+
+[![Tiririca chega e ninguém espera por isso](https://uploaddeimagens.com.br/images/001/680/500/original/tiririca.PNG?1540090894)](https://youtu.be/kvgFFbbvBPs)
+
+## Você é o bichão mesmo, hein doido?
+
+SUSPEITO responde ironicamente ao jornalista.
+
+[![voce e o bichao MEME](https://i.ytimg.com/vi/MiQ_OSW9pLM/hqdefault.jpg)](https://www.youtube.com/watch?v=MiQ_OSW9pLM)
+
+## HACKERMAN
+
+Quando você resolve aquele erro simples no código.(Personagem do filme Kung Fury | 2015)
+
+[![HACKERMAN](https://ih0.redbubble.net/image.175665193.4068/mp,550x550,matte,ffffff,t.3u2.jpg)](https://www.youtube.com/watch?v=fQGbXmkSArs)
+
+## Não é feitiçaria, é tecnologia!
+
+Slogan de uma propaganda do início dos anos 2000.
+
+[![feiticaria](https://d3hyqo1pjnhp1v.cloudfront.net/n49shopv2_seuscabelos/images/article/sddefault.jpg)](https://www.youtube.com/watch?v=N0oRYCivKrs)
+
+## It's been 84 years.
+
+Cena do filme TITANIC | 1997
+
+[![eightyfour](https://j.gifs.com/4x0APV.gif)](https://www.youtube.com/watch?v=7tectqamOkc)
+
+## Gosto mais de batata e gosto mais de estudar também.
+
+Frase tirada de uma esquete do Hermes & Renato. (Personagem - Charlinho).
+
+[![batataeestudar](https://i.ytimg.com/vi/_z1uo1HxnGg/hqdefault.jpg)](https://www.youtube.com/watch?v=B6Vyhtvpp4k&t)
+
+## Gordinho Jaguatirica
+
+[![Gordinho Jaguatirica](https://media1.tenor.com/images/b9ed4063766ed0ceeb65e66a9047041e/tenor.gif?itemid=11814576)](https://www.youtube.com/watch?v=OE0Fe2Snktc)
+
+## Choque de Cultura - "Me vejo obrigado a concordar com o palestrinha"
+
+Frase proferida pelo personagem Julinho da Van, interpretado por Leandro Ramos, concordando com o personagem Maurilio, interpretado por Raul Chequer.
+
+[![Me vejo obrigado a concordar com o palestrinha!](https://www.packdememes.com.br/meme/63841a759db4d7c470da874f22b81d82.jpg)]
+
+## Choque de Cultura - "Olha a denúncia aqui oh!!"
+
+Frase proferida pelo personagem Rogerinho do Ingá, ao enfatizar algo "denunciado" por algum dos participantes do programa.
+
+[![Olha a denúncia aqui oh!!](https://www.packdememes.com.br/meme/432a583695f8c0ef3eff77124c051962.jpg)]
+
+## Choque de Cultura - "Me permite um protesto?"
+
+Frase proferida pelo personagem Julinho da Van, ao solicitar a oportunidade de comentar sobre algo.
+
+[![Olha a denúncia aqui oh!!](https://www.packdememes.com.br/meme/ab086aaa8af775c9ef522421b03abe40.jpg)]
+
+## Choque de Cultura - "Era uma criança linda, agora virou um adulto esquisito"
+
+Frase proferida pelo personagem Renan, ao comentar a mudança de algumas pessoas sofrem na vida.
+
+[![Olha a denúncia aqui oh!!](https://www.packdememes.com.br/meme/064e547ac1e32c6f27b6581a3f3ff394.jpg)]
+
+## Bongo Cat
+
+Esse gato toca muito \\^o^/
+
+[![Bongo Cat Memes](https://i.ytimg.com/vi/g_aXobIyA2I/hqdefault.jpg)](https://www.youtube.com/watch?v=5fCM0Ttx0WA)
+
+## O melhor do nordeste no YouTube
+
+O canal do YouTube se chama Keké Isso na TV e contém duas estrelinhas chamadas Irene e Zuzu. Começou com aulas da Dona Irene e hoje tem temas diversificados, mas mantendo o gênero do humor.
+
+![DonaIrene](https://media.giphy.com/media/bMJ0VU9VGFiCc/giphy.gif)
+
+## Tive Irene
+
+Na série do YouTube Girls In The House, criada no The Sims por Raony Phillips, há uma cabeleireira chamada Irene conhecida por deixar as pessoas careca quando vão no seu salão. Então quando alguém volta de um salão e o corte não deu certo: diz-se que teve Irene.
+
+![TiveIrene](https://pm1.narvii.com/6831/56277d6ce5e968cd8c42ff320b65ab67e9d76a92v2_hq.jpg)
+
+## Movimento #EleNão
+
+Durante as eleições brasileiros de 2018 surgiu um movimento chamado #EleNão, aderido por pessoa que são contra o candidato Jair Bolsonaro.
+
+![EleNão](https://i1.wp.com/www.botequimdeideias.com.br/flogase/wp-content/uploads/2018/09/artigo-elenao.jpg?fit=540%2C300)
+
+## Mc Loma e as Gêmeas Lacração
+
+O trio surgiu no carnaval com uma série de memes por meio das músicas. As meninas de Recife-PE bombaram com as gírias: Cebruthius e Escama só de Peixe UAII. Cebruthius era a palavra que a cantora Loma entendia quando a caixinha de som JBL ligava, que na verdade era a frase "The bluetooh device is ready to pai". Já "Escama só de peixe" é quando alguém está se achando e você diz "Escama é só de peixe, bebê".
+
+![McLoma](https://img.buzzfeed.com/buzzfeed-static/static/2018-02/11/12/asset/buzzfeed-prod-fastlane-03/anigif_sub-buzz-25150-1518370621-6.gif?crop=176:143;73,37)
+
+## Inês Brasil: O meme ambulante
+
+"Segura a marimba monamu" "Se me ataca eu vou ataca" "Bata na sua cara antes que eu bata" e por aí vai...
+
+![Inês Brasil](https://i.pinimg.com/originals/da/34/63/da34637550276da6734c385bdcdf9655.jpg)
+
+
+## Senhora?, Senhora?!, Senhora?!?!
+
+Funcionária publica é entrevistada por jornalista sobre ela só bater o ponto e sair correndo da jornalista e a jornalista persegue ela.
+
+[![Senhora funcionária publica](https://imgsapp2.uai.com.br/app/noticia_133890394703/2015/09/29/172366/20150929145905942301e.jpg)](https://www.youtube.com/watch?v=GdxPGO10fG4)
+
 ## Tem raiva do cu?
 
 Excelente ministração do pastor sobre como os fiéis devem lavar o cu.
@@ -534,9 +660,73 @@ Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
 
-## É o quê???
+[![Outfit](https://media1.tenor.com/images/856dedf10849fc68f009f0159479152c/tenor.gif?itemid=11944888)](https://www.youtube.com/watch?v=u6b_T0aZnVY)
 
-Você tá de boas no seu LoLzin quando...
+## Nutella
+
+A pessoa nutella gosta de coisas "fancy" e gosta de se sentir popular/atualizado. Pode ser aplicado em varios contextos.
+
+![Nutella](https://target.scene7.com/is/image/Target/GUEST_8a9eb8dd-7070-478e-85c2-bc53deb02227?wid=488&hei=488&fmt=pjpeg)
+
+## Raiz
+
+A pessoa raiz gosta de coisas feitas de forma "tradicional". Pode ser aplicado em vários contextos.
+
+![Raiz](https://www.saludcasera.com/wp-content/uploads/2016/06/raiz-de-ashwagandha.jpg)
+
+## Absolutely Barbaric
+
+Esse meme deve ser utilizado quando alguem faz algo totalmente fora do "normal" ou do "padrao". Essa pessoa eh dita uma barbara! Exemplo: essa imagem poderia ser enviada para alguem que coloca o feijao antes do arroz na montagem do prato.
+
+![Barbaric](https://pics.me.me/absolutely-barbaric-27770087.png)
+
+## Moon Moon
+
+Um husk pode ser conhecido como "Moon Moon" na internet. Ainda mais quando ele faz coisas estranhas.
+
+![MoonMoon](https://i.ytimg.com/vi/Bc658p8pmL4/hqdefault.jpg)
+
+## I did it! (Eu consegui!)
+
+Essa coisa fofa viralizou na internet como o simbolo de pura vitoria! Muito usado quando conseguimos atingir ou ate ultrapassar nossas metas.
+
+![BabyMeme](https://hips.hearstapps.com/cosmouk.cdnds.net/15/31/1438173668-cute-success-kid.jpg?crop=1xw:1.0xh;center,top&resize=480:*)
+
+## Poker Face
+
+Classico dos classicos. Preciso mesmo explicar o poker face? Quando voce nao tiver ideia do que fazer: Poker face '-'
+
+![Pokerface](https://i.kym-cdn.com/entries/icons/original/000/003/193/teddy-bear-poker-face.jpg)
+
+## Lindomar, o Sub-zero Brasileiro
+
+Quando a babá malvada que agredia crianças saiu na rua, nosso herói entrou em ação.
+
+[![LINDOMAR](http://www.museudememes.com.br/wp-content/uploads/2017/03/lindomar-sub.jpg)](https://www.youtube.com/watch?v=OM4mw1q5PP4)
+
+## Tô cagado de fome
+
+[![To cagado de fome](http://www.videosnowhats.com/painel/files/34D90.jpg)](https://www.youtube.com/watch?v=MM4U4RH2s64)
+
+## Irineu, você não sabe nem eu!
+
+[![IRINEU](https://i.ytimg.com/vi/1vFk3u0pac4/maxresdefault.jpg)](https://www.youtube.com/watch?v=Hebw7Mw_WAg)
+
+## Grávida de Taubaté
+
+[![gravida](https://observatoriodatelevisao.bol.uol.com.br/wp-content/uploads/2018/03/edu-guedes-e-a-gravida-de-taubate.jpg)](https://www.youtube.com/watch?v=ch7_m_IT_vY)
+
+## Puta falta de sacanagem
+
+[![falta de sacanagem](http://1.bp.blogspot.com/_OxHsI7USKdE/S_SLc4eX_jI/AAAAAAAAAXw/M6B84Bk4Rpw/s1600/falta+de+sacanagem.jpg)](https://www.youtube.com/watch?v=d_L_yoI7buE)
+
+## Vou xingar muito no twitter
+
+[![Xingar no twitter](https://pbs.twimg.com/media/CgHZNacXIAAwqNU.jpg)](https://youtu.be/yRzrhzeusvU?t=107)
+
+## Gordinho do Outfit
+
+Gordinho mostra todo valor do seu outfit
 
 [![EOQ](https://i.ytimg.com/vi/MaW4fY8ScYw/hqdefault.jpg)](https://youtu.be/MaW4fY8ScYw)
 
