@@ -541,29 +541,17 @@ Quando você está esperando que o Goku chegue e salve o planeta terra, mas é s
 
 [![Tiririca chega e ninguém espera por isso](https://uploaddeimagens.com.br/images/001/680/500/original/tiririca.PNG?1540090894)](https://youtu.be/kvgFFbbvBPs)
 
-## Bongo Cat
+## Nutella
 
-Esse gato toca muito \\^o^/
+A pessoa nutella gosta de coisas "fancy" e gosta de se sentir popular/atualizado. Pode ser aplicado em varios contextos.
 
-[![Bongo Cat Memes](https://i.ytimg.com/vi/g_aXobIyA2I/hqdefault.jpg)](https://www.youtube.com/watch?v=5fCM0Ttx0WA)
+![Nutella](https://target.scene7.com/is/image/Target/GUEST_8a9eb8dd-7070-478e-85c2-bc53deb02227?wid=488&hei=488&fmt=pjpeg)
 
-## Senhora?, Senhora?!, Senhora?!?!
+## Raiz
 
-Funcionária publica é entrevistada por jornalista sobre ela só bater o ponto e sair correndo da jornalista e a jornalista persegue ela.
+A pessoa raiz gosta de coisas feitas de forma "tradicional". Pode ser aplicado em vários contextos.
 
-[![Senhora funcionária publica](https://imgsapp2.uai.com.br/app/noticia_133890394703/2015/09/29/172366/20150929145905942301e.jpg)](https://www.youtube.com/watch?v=GdxPGO10fG4)
-
-## Tem raiva do cu?
-
-Excelente ministração do pastor sobre como os fiéis devem lavar o cu.
-
-[![Tem raiva do cu?](https://i.ytimg.com/vi/p7jyJ9YpsgE/hqdefault.jpg)](https://www.youtube.com/watch?v=ny1xNZdvMw4)
-
-## Bora fechar?
-
-Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
-
-[![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+![Raiz](https://www.saludcasera.com/wp-content/uploads/2016/06/raiz-de-ashwagandha.jpg)
 
 ## Você é o bichão mesmo, hein doido?
 
@@ -594,3 +582,28 @@ Cena do filme TITANIC | 1997
 Frase tirada de uma esquete do Hermes & Renato. (Personagem - Charlinho).
 
 [![batataeestudar](https://i.ytimg.com/vi/_z1uo1HxnGg/hqdefault.jpg)](https://www.youtube.com/watch?v=B6Vyhtvpp4k&t)
+
+
+## Bongo Cat
+
+Esse gato toca muito \\^o^/
+
+[![Bongo Cat Memes](https://i.ytimg.com/vi/g_aXobIyA2I/hqdefault.jpg)](https://www.youtube.com/watch?v=5fCM0Ttx0WA)
+
+## Senhora?, Senhora?!, Senhora?!?!
+
+Funcionária publica é entrevistada por jornalista sobre ela só bater o ponto e sair correndo da jornalista e a jornalista persegue ela.
+
+[![Senhora funcionária publica](https://imgsapp2.uai.com.br/app/noticia_133890394703/2015/09/29/172366/20150929145905942301e.jpg)](https://www.youtube.com/watch?v=GdxPGO10fG4)
+
+## Tem raiva do cu?
+
+Excelente ministração do pastor sobre como os fiéis devem lavar o cu.
+
+[![Tem raiva do cu?](https://i.ytimg.com/vi/p7jyJ9YpsgE/hqdefault.jpg)](https://www.youtube.com/watch?v=ny1xNZdvMw4)
+
+## Bora fechar?
+
+Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
+
+[![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
