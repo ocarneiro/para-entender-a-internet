@@ -778,3 +778,9 @@ Novamente, pérolas do pensamento chapoliônico: conselhos para fofinhos.
 Zerar a NetFlix
 
 [![ZerarNetFlix](https://www.altoastral.com.br/wp-content/uploads/2016/08/gretchen.gif)]
+
+## Mete dança
+
+Mete dança
+
+[![MeteDanca](https://media.giphy.com/media/PSKAppO2LH56w/giphy.gif)]
