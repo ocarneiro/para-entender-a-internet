@@ -15,7 +15,6 @@ Ruth Lemos, nutricionista, dá dicas sobre uma alimentação saudável-ável que
 
 [![Sanduicheiche](https://vignette.wikia.nocookie.net/meme/images/1/14/Ruth_Lemos.png/revision/latest?cb=20151016223957&path-prefix=pt-br)](https://www.youtube.com/watch?v=pmn-dbBpglU)
 
-
 ## BIRL (Bambam bodybuilder)
 
 Bambam, participante do Big Brother Brasil (BBB) edição 1 de 2002, fez um vídeo malhando e falando muitos palavrões:
@@ -44,23 +43,23 @@ Se te convidarem para jantar e tomar um vinho, cuidado, Marilene!
 
 [![Tainha](https://thumbs.gfycat.com/BowedWaterloggedGuanaco-max-1mb.gif)](http://www.youtube.com/watch?v=z7-ZYXpJ_EU)
 
-
 ## Serjão Berranteiro, matador de onça
 
 [![Onça](https://i.makeagif.com/media/2-02-2017/YyQWmh.gif)](http://www.youtube.com/watch?v=OjYRjpgdLeI)
 
-
 ## O Rei do Elogio
 
-
 [![O Rei do Elogio](http://img.youtube.com/vi/6rrCGsecJrk/0.jpg)](https://www.youtube.com/watch?v=6rrCGsecJrk)
-
-
 
 ## Melhor grupo do Brasil - Carreta Furacão
 
 [![Siga_em_Frente](https://www.fatosdesconhecidos.com.br/wp-content/uploads/2016/04/2cncoxk.gif)](https://www.youtube.com/watch?v=tmJ0tzAZ4aM)
 
+## Adriana Lima
+
+A modelo Adriana Lima foi entrevistada e enviou o beijinho mais famoso da internet
+
+[![Adriana Lima](http://www.museudememes.com.br/wp-content/uploads/2018/04/CxkW1JxW8AAn9f9-960x640_c.jpg)](https://youtu.be/Y0tad4RAay4)
 
 ## Já acabou, Jéssica?
 
@@ -80,20 +79,17 @@ Silvio Santos às vezes abria o programa para participação de pessoas da plat�
 
 [![BedIntruder](https://thumbs.gfycat.com/EntireUnhappyCondor-small.gif)](//www.youtube.com/watch?v=hMtZfW2z9dw&t=17s)
 
-
 ## Gretchen rainha dos memes
 
 Conheça Gretchen, Rainha dos memes da internet brasileira
 
 [![Gretchen rainha dos memes](https://faesadigital.files.wordpress.com/2017/07/giphy4.gif?w=1200)](https://www.youtube.com/watch?v=QLOcGaqDByw)
 
-
 ## Tava ruim, agora parece que piorou
 
 Dava pra melhor com certeza, quer dizer que ia mudar melhor, já tava bom, disse que ia mudar pra melhor, não tava muito bom, tava meio ruim também, tava ruim, agora parece que piorou.﻿
 
 [![Tava ruim, agora parece que piorou](https://i.makeagif.com/media/5-20-2015/41-jmq.gif)](//www.youtube.com/watch?v=VX3lz5ph8A0)
-
 
 ## Omae wa mou shindeiru! Nani??
 
