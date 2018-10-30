@@ -778,3 +778,9 @@ Novamente, pérolas do pensamento chapoliônico: conselhos para fofinhos.
 Zerar a NetFlix
 
 [![ZerarNetFlix](https://www.altoastral.com.br/wp-content/uploads/2016/08/gretchen.gif)]
+
+## Melhor Gif do Mundo
+
+Eu quando acho dinheiro na roupa
+
+[![THEBEST](https://media.giphy.com/media/yoJC2GnSClbPOkV0eA/giphy.gif)]
