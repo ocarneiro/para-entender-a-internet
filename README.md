@@ -778,3 +778,13 @@ Novamente, pérolas do pensamento chapoliônico: conselhos para fofinhos.
 Zerar a NetFlix
 
 [![ZerarNetFlix](https://www.altoastral.com.br/wp-content/uploads/2016/08/gretchen.gif)]
+
+## Fábio Assunção chama o sargento
+
+Fábio Assunção, muito chapado e preso na viatura, manda desesperadamente chamar o sargento.
+
+[![Chama o sargento](https://pbs.twimg.com/media/DDGUvMfXsAAxMAU.jpg)](https://www.youtube.com/watch?v=AFcBkceZYu8)
+
+
+
+
