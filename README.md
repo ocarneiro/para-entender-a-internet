@@ -778,3 +778,9 @@ Novamente, pérolas do pensamento chapoliônico: conselhos para fofinhos.
 Zerar a NetFlix
 
 [![ZerarNetFlix](https://www.altoastral.com.br/wp-content/uploads/2016/08/gretchen.gif)]
+
+## Eu Tô chocada! Meu Deus!
+
+Pedestre paraibana se deparada "pela primeira vez" com cratera aberta no concreto da rua.
+
+[![ToChocada](http://freegifmaker.me/images/2dhwZ/)](https://www.youtube.com/watch?v=0BMUm2PupCU)
