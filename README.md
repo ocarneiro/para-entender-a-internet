@@ -777,4 +777,4 @@ Novamente, pérolas do pensamento chapoliônico: conselhos para fofinhos.
 
 Eu quando acho dinheiro na roupa
 
-[![THEBEST](https://gph.is/1IH3RW6)]
+[![THEBEST](https://media.giphy.com/media/yoJC2GnSClbPOkV0eA/giphy.gif)]
