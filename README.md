@@ -777,6 +777,4 @@ Novamente, pérolas do pensamento chapoliônico: conselhos para fofinhos.
 
 Mete dança
 
-[![MeteDanca](https://gph.is/1SIxFvN)]
-
-https://gph.is/1SIxFvN
+[![MeteDanca](https://media.giphy.com/media/PSKAppO2LH56w/giphy.gif)]
