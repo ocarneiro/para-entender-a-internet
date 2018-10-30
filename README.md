@@ -785,3 +785,10 @@ Zerar a NetFlix
 Yes, we Quero!
 
 ![Yes, we Quero!](http://www.latinpopbrasil.com.br/wp-content/uploads/2015/07/eduardo-jorge-quero.jpg)
+
+
+## Eduardo Jorge, o spock brasileiro
+
+A cena foi rápida e o gesto discreto. Mesmo assim, os fãs da saga Jornada nas Estrelas não perderam de vista a referência e logo entenderam – e viralizaram nas redes sociais – uma ação do canditato a vice-presidente da República, Eduardo Jorge (PV), da chapa da candidata Marina Silva (Rede), em plena propaganda eleitoral. É que Eduardo Jorge replicou, em meio a um discurso de Marina sobre uma das propostas das chapa, o mundialmente conhecido símbolo do capitão Spock, personagem clássico da saga. O gesto é feito aos 5 segundos do vídeo de apenas 21 segundos de duração.
+
+[![Spock Jorge](https://statig2.akamaized.net/bancodeimagens/3o/sv/ey/3osvey0lz19ohpddrtquiw3l8.jpg)](https://www.youtube.com/watch?v=qT8-UX6kxH8)
