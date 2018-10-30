@@ -765,16 +765,30 @@ Um cara que tem respostas gentis para tudo.
 
 Grandes pensamentos da sabedoria mexicana do nosso eterno herói
 
-[![ChapoSinc](http://www.museudememes.com.br/wp-content/uploads/2015/01/chapolim.jpg)]
+![ChapoSinc](http://www.museudememes.com.br/wp-content/uploads/2015/01/chapolim.jpg)
 
 ## Chapolin Sincero contra-ataca
 
 Novamente, pérolas do pensamento chapoliônico: conselhos para fofinhos.
 
-[![ChapoSinc](http://www.joaoalberto.com/wp-content/uploads/2017/01/31/chapolin1.jpg)]
+![ChapoSinc](http://www.joaoalberto.com/wp-content/uploads/2017/01/31/chapolin1.jpg)
 
 ## Zerar a NetFlix
 
 Zerar a NetFlix
 
-[![ZerarNetFlix](https://www.altoastral.com.br/wp-content/uploads/2016/08/gretchen.gif)]
+![ZerarNetFlix](https://www.altoastral.com.br/wp-content/uploads/2016/08/gretchen.gif)
+
+
+## Eduardo Jorge, o meme dos debates
+
+Yes, we Quero!
+
+![Yes, we Quero!](http://www.latinpopbrasil.com.br/wp-content/uploads/2015/07/eduardo-jorge-quero.jpg)
+
+
+## Eduardo Jorge, o spock brasileiro
+
+A cena foi rápida e o gesto discreto. Mesmo assim, os fãs da saga Jornada nas Estrelas não perderam de vista a referência e logo entenderam – e viralizaram nas redes sociais – uma ação do canditato a vice-presidente da República, Eduardo Jorge (PV), da chapa da candidata Marina Silva (Rede), em plena propaganda eleitoral. É que Eduardo Jorge replicou, em meio a um discurso de Marina sobre uma das propostas das chapa, o mundialmente conhecido símbolo do capitão Spock, personagem clássico da saga. O gesto é feito aos 5 segundos do vídeo de apenas 21 segundos de duração.
+
+[![Spock Jorge](https://statig2.akamaized.net/bancodeimagens/3o/sv/ey/3osvey0lz19ohpddrtquiw3l8.jpg)](https://www.youtube.com/watch?v=qT8-UX6kxH8)
