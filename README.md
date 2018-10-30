@@ -778,3 +778,10 @@ Novamente, pérolas do pensamento chapoliônico: conselhos para fofinhos.
 Zerar a NetFlix
 
 [![ZerarNetFlix](https://www.altoastral.com.br/wp-content/uploads/2016/08/gretchen.gif)]
+
+
+## Eduardo Jorge, o meme dos debates
+
+Yes, we Quero!
+
+[![Yes, we Quero!](http://www.latinpopbrasil.com.br/wp-content/uploads/2015/07/eduardo-jorge-quero.jpg)]
