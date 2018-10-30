@@ -777,4 +777,4 @@ Novamente, pérolas do pensamento chapoliônico: conselhos para fofinhos.
 
 Swingueira
 
-[![Swing](http://oliverartelucas.com.br/wp-content/uploads/2015/03/ezgif.com-resize.gif)]
+[![Swing](https://media0.giphy.com/media/W80Y9y1XwiL84/giphy.gif?cid=3640f6095bd8354e7434576467ae467c)]
