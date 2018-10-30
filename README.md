@@ -765,23 +765,23 @@ Um cara que tem respostas gentis para tudo.
 
 Grandes pensamentos da sabedoria mexicana do nosso eterno herói
 
-[![ChapoSinc](http://www.museudememes.com.br/wp-content/uploads/2015/01/chapolim.jpg)]
+![ChapoSinc](http://www.museudememes.com.br/wp-content/uploads/2015/01/chapolim.jpg)
 
 ## Chapolin Sincero contra-ataca
 
 Novamente, pérolas do pensamento chapoliônico: conselhos para fofinhos.
 
-[![ChapoSinc](http://www.joaoalberto.com/wp-content/uploads/2017/01/31/chapolin1.jpg)]
+![ChapoSinc](http://www.joaoalberto.com/wp-content/uploads/2017/01/31/chapolin1.jpg)
 
 ## Zerar a NetFlix
 
 Zerar a NetFlix
 
-[![ZerarNetFlix](https://www.altoastral.com.br/wp-content/uploads/2016/08/gretchen.gif)]
+![ZerarNetFlix](https://www.altoastral.com.br/wp-content/uploads/2016/08/gretchen.gif)
 
 
 ## Eduardo Jorge, o meme dos debates
 
 Yes, we Quero!
 
-[![Yes, we Quero!](http://www.latinpopbrasil.com.br/wp-content/uploads/2015/07/eduardo-jorge-quero.jpg)]
+![Yes, we Quero!](http://www.latinpopbrasil.com.br/wp-content/uploads/2015/07/eduardo-jorge-quero.jpg)
