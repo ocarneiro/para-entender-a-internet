@@ -775,4 +775,4 @@ Novamente, pérolas do pensamento chapoliônico: conselhos para fofinhos.
 
 ## Not Today Santan, Bianca Del Rio
 
-[![NotTodaySatan](https://gph.is/1SCmtPE)]
+[![NotTodaySatan](https://media.giphy.com/media/Ozf9DBfaBGT8Q/giphy.gif)]
