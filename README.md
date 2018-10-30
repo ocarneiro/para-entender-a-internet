@@ -772,3 +772,9 @@ Grandes pensamentos da sabedoria mexicana do nosso eterno herói
 Novamente, pérolas do pensamento chapoliônico: conselhos para fofinhos.
 
 [![ChapoSinc](http://www.joaoalberto.com/wp-content/uploads/2017/01/31/chapolin1.jpg)]
+
+## Zerar a NetFlix
+
+Zerar a NetFlix
+
+[![ZerarNetFlix](https://www.altoastral.com.br/wp-content/uploads/2016/08/gretchen.gif)]
