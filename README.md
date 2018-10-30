@@ -778,3 +778,9 @@ Novamente, pérolas do pensamento chapoliônico: conselhos para fofinhos.
 Zerar a NetFlix
 
 [![ZerarNetFlix](https://www.altoastral.com.br/wp-content/uploads/2016/08/gretchen.gif)]
+
+## Swing
+
+Swingueira
+
+[![Swing](https://media0.giphy.com/media/W80Y9y1XwiL84/giphy.gif?cid=3640f6095bd8354e7434576467ae467c)]
