@@ -778,3 +778,7 @@ Novamente, pérolas do pensamento chapoliônico: conselhos para fofinhos.
 Zerar a NetFlix
 
 [![ZerarNetFlix](https://www.altoastral.com.br/wp-content/uploads/2016/08/gretchen.gif)]
+
+## Not Today Santan, Bianca Del Rio
+
+[![NotTodaySatan](https://media.giphy.com/media/Ozf9DBfaBGT8Q/giphy.gif)]
