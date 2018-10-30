@@ -15,12 +15,17 @@ Ruth Lemos, nutricionista, dá dicas sobre uma alimentação saudável-ável que
 
 [![Sanduicheiche](https://vignette.wikia.nocookie.net/meme/images/1/14/Ruth_Lemos.png/revision/latest?cb=20151016223957&path-prefix=pt-br)](https://www.youtube.com/watch?v=pmn-dbBpglU)
 
-
 ## BIRL (Bambam bodybuilder)
 
 Bambam, participante do Big Brother Brasil (BBB) edição 1 de 2002, fez um vídeo malhando e falando muitos palavrões:
 
 [![BIRL](https://img.buzzfeed.com/buzzfeed-static/static/2016-05/31/12/asset/buzzfeed-prod-web14/anigif_sub-buzz-4076-1464711500-10.gif)](http://www.youtube.com/watch?v=zwvsa7DzzHY)
+
+## Fadas do Deboche 
+
+Durante a pregação de uma "pastora mirim", duas meninas tiveram as reações de deboche mais icônicas da internet e ficaram conhecidas como as Fadas do Deboche. 
+
+[![Fadas do Deboche](http://www.museudememes.com.br/wp-content/uploads/2018/05/fadasdodeboche-2.jpg)](https://youtu.be/TL8N8wIa4IY)
 
 ## Fazer humanas e viver da arte, fazer miçangas
 
