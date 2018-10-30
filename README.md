@@ -32,6 +32,11 @@ Um tempo depois ela apareceu de novo na TV:
 
 [![Milena2](http://img.youtube.com/vi/ObBNoD7IAng/0.jpg)](http://www.youtube.com/watch?v=ObBNoD7IAng)
 
+## Ana Paula Renault
+
+Ex-BBB, Ana Paula, gritando "OLHA ELAAAA!" durante a edição do BBB.
+
+[![Ana Paula Renault](http://www.museudememes.com.br/wp-content/uploads/2016/07/hqdefault.jpg)](http://www.museudememes.com.br/sermons/olha-ela/)
 
 ## Tainha, vinho...
 
