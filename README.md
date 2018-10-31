@@ -799,3 +799,11 @@ Seu deboche já diz tudo!
 
 ![Rainha do deboche](https://media.tenor.com/images/fbba02cf9963359679b279dd7167ade4/tenor.gif)
 
+## Socorro feirante
+
+Ela é feirante e vende planta, de coração aberto ajudou Mirian que vende Mary Kay que tinha um caso com seu boy!
+
+![Socorro feirante](https://media.tenor.com/images/fbba02cf9963359679b279dd7167ade4/tenor.gif)
+
+
+
