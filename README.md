@@ -795,5 +795,5 @@ A cena foi rápida e o gesto discreto. Mesmo assim, os fãs da saga Jornada nas 
 [![Spock Jorge](https://statig2.akamaized.net/bancodeimagens/3o/sv/ey/3osvey0lz19ohpddrtquiw3l8.jpg)](https://www.youtube.com/watch?v=qT8-UX6kxH8)
 
 ## Não dá pra resistir
-[![TheVoice](http://www.naoentreaki.com.br/geral/806255-fatos.htm?topic=humor&order=hoje)]
+[![TheVoice](http://img.ibxk.com.br/ns/rexposta/2018/10/30/30092020925061.jpg)]
 
