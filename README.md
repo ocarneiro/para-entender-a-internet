@@ -210,6 +210,10 @@ A menina Isabela, revoltada ao saber que seu pai havia fechado a porta cobra exp
 
 [![QUERO CAFÉ](http://img.youtube.com/vi/VxRpkfcXEpA/0.jpg)](https://www.youtube.com/watch?v=VxRpkfcXEpA)
 
+## Quem não gosta, gosta, quem não gosta curte!
+
+[![Quem não gosta gosta, quem não gosta curte](https://www.google.com/search?q=quem+gosta+gosta+quem+n%C3%A3o+gosta+curte&source=lnms&tbm=isch&sa=X&ved=0ahUKEwjW6MDcp7HeAhWFS5AKHTaCDcAQ_AUIDigB&biw=1366&bih=626#imgrc=42O4VK0IeeyO0M:)](https://www.youtube.com/watch?v=6SfBPAKec88)
+
 ## Padre Quemedo e o filho do Capeta
 
 Hermes e Renato é provavelmente o maior concentrador de falas e expressões de cultura pop da geração nascida nos anos 90. Nesse vídeo, o Padre Quemedo questiona a veracidade de um suposto Filho do Capeta
@@ -219,6 +223,10 @@ Hermes e Renato é provavelmente o maior concentrador de falas e expressões de 
 ## Morre diabo!
 
 [![Morre diabo](http://img.youtube.com/vi/dAuE92NvuXU/0.jpg)](https://www.youtube.com/watch?v=dAuE92NvuXU)
+
+## Cê foi inocente agora
+
+[![Choque de Cultura: Cê foi inocente agora](https://cdn.dicionariopopular.com/imagens/ce-foi-inocente-agora-cke.jpg)](https://www.youtube.com/watch?v=4u1w1UnqI0Y)
 
 ## Jeremias muito louco!
 
