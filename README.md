@@ -121,6 +121,12 @@ e morreu!
 
 [![e morreu!](http://pa1.narvii.com/6532/f5684277ae6a9fadaccdcddd68ace49cd8516a32_hq.gif)](https://www.youtube.com/watch?v=kMbcgxUeYkc)
 
+## O feiticeiro do hexa
+
+Uma misteriosa figura foi capturada pelas imagens, permanecendo no ar por alguns segundos. Assim, o “Torcedor Misterioso”, o “Psicopata da Copa” ou o “Feiticeiro do Hexa” tornou-se um fenômeno imediato
+
+[![O feiticeiro do hexa](http://www.museudememes.com.br/wp-content/uploads/2018/07/feiticeiro-do-hexa-600x530.jpg)](https://www.youtube.com/watch?time_continue=1&v=Idta0fkYQ2U)
+
 
 ## Melody e sua amiga diva do falsete mostrando cultura para o Brasil
 
