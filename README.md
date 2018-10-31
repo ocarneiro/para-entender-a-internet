@@ -250,6 +250,18 @@ Nunca fale uma coisa idiota perto do Caetano!
 
 [![Como você é burro cara!](https://media.giphy.com/media/uZfADsbOw4Dcs/giphy.gif)](https://www.youtube.com/watch?v=lOxSDaTfujU)
 
+## Como você é burro cara!
+
+Nunca fale uma coisa idiota perto do Caetano!
+
+[![Como você é burro cara!](https://media.giphy.com/media/uZfADsbOw4Dcs/giphy.gif)](https://www.youtube.com/watch?v=lOxSDaTfujU)
+
+
+## Por que você não amadurece?
+
+O meme surge no dia 29/12/2015 em um tweet do usuário dimitri (@boudelaires). Ele posta um diálogo no qual alguém pergunta “Por que você não amadurece??” e a pessoa perguntada responde “pir qui vici ni amidirici??” 
+
+[![Por que você não amadurece?](http://www.museudememes.com.br/wp-content/uploads/2017/09/nasce-o-mostro-1-600x600.png)](https://www.youtube.com/watch?v=cJWfgH6VaL4)
 
 ## Para noossssaaaa alegriaaa!!!
 
@@ -321,6 +333,10 @@ Entrevista muito várzea sobre uma visita no setor agropecuário...Leite!
 Uma reportagem sobre a Festa da Uva de Caxias do Sul (RS), em 1996, que marcou a vida do jornalista Lasier Martins.
 
 [![Pederneiras](https://thumbs.gfycat.com/JauntyEnchantingIberianmidwifetoad-max-1mb.gif)](https://www.youtube.com/watch?v=li7afUaMvWk)
+
+
+
+
 
 ## Ao Tavão
 
@@ -653,6 +669,12 @@ Funcionária publica é entrevistada por jornalista sobre ela só bater o ponto 
 Excelente ministração do pastor sobre como os fiéis devem lavar o cu.
 
 [![Tem raiva do cu?](https://i.ytimg.com/vi/p7jyJ9YpsgE/hqdefault.jpg)](https://www.youtube.com/watch?v=ny1xNZdvMw4)
+
+## Hoje nao, hoje nao... Hoje sim? Hoje sim
+
+Esta foi a narração de Cleber Machado, que eternizou na memória do torcedor brasileiro o GP da Áustria de 2002, uma das corridas mais controversas da história da Fórmula 1.
+
+[![Hoje nao, hoje nao... Hoje sim? Hoje sim](http://2.bp.blogspot.com/_DBU3u0O9YkQ/TEyvSJPzqCI/AAAAAAAAAO0/HrWrMbaoQC0/s640/felipemassa_alonso_f1_afp_620_2.jpg)](https://www.youtube.com/watch?v=7jGr7B2XJuY)
 
 ## Bora fechar?
 
