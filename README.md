@@ -220,6 +220,10 @@ Hermes e Renato é provavelmente o maior concentrador de falas e expressões de 
 
 [![Morre diabo](http://img.youtube.com/vi/dAuE92NvuXU/0.jpg)](https://www.youtube.com/watch?v=dAuE92NvuXU)
 
+## Cê foi inocente agora
+
+[![Choque de Cultura: Cê foi inocente agora](https://cdn.dicionariopopular.com/imagens/ce-foi-inocente-agora-cke.jpg)](https://www.youtube.com/watch?v=4u1w1UnqI0Y)
+
 ## Jeremias muito louco!
 
 Mais uma figura de programas políciais que ficou muito famosa quando aqui na internet era tudo mato!
