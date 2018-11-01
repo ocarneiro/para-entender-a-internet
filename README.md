@@ -792,3 +792,10 @@ Yes, we Quero!
 A cena foi rápida e o gesto discreto. Mesmo assim, os fãs da saga Jornada nas Estrelas não perderam de vista a referência e logo entenderam – e viralizaram nas redes sociais – uma ação do canditato a vice-presidente da República, Eduardo Jorge (PV), da chapa da candidata Marina Silva (Rede), em plena propaganda eleitoral. É que Eduardo Jorge replicou, em meio a um discurso de Marina sobre uma das propostas das chapa, o mundialmente conhecido símbolo do capitão Spock, personagem clássico da saga. O gesto é feito aos 5 segundos do vídeo de apenas 21 segundos de duração.
 
 [![Spock Jorge](https://statig2.akamaized.net/bancodeimagens/3o/sv/ey/3osvey0lz19ohpddrtquiw3l8.jpg)](https://www.youtube.com/watch?v=qT8-UX6kxH8)
+
+
+## Acertô, Miseravi!!
+
+Quem te ensinou? Esse meme se espalhou pela Bahia inteira, e agora já é quase um dito popular.
+
+[![Miseravi](https://i.ytimg.com/vi/iEZk0iifCEk/hqdefault.jpg)](https://www.youtube.com/watch?v=grNlD2GpvyY)
