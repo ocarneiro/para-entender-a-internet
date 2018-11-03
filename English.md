@@ -14,16 +14,3 @@ Confused Travolta is an animated GIF series featuring a cutout of actor John Tra
 
 [![Confused Travolta](http://i0.kym-cdn.com/photos/images/original/001/042/619/4ea.jpg)](http://knowyourmeme.com/memes/confused-travolta)
 
-## WAT grandma
-
-One of the most popular images associated with "WAT" is that of a surprised looking old woman, known as "WAT Grandma."
-
-[![WAT grandma](https://steamuserimages-a.akamaihd.net/ugc/567772874572150412/DCCB79D00C8AA5A5AAC38B20CD655317F5162EE2/)](https://knowyourmeme.com/memes/wat)
-
-## All Star
-
-"All Star" is a 1999 alternative rock song by Smash Mouth, which was notably featured as a main theme in the Shrek franchise. Online, the song is frequently referenced in ironic meme communities and has been widely remixed, covered and parodied.
-
-[![All Star](https://i.kym-cdn.com/entries/icons/original/000/018/137/Smash_Mouth_-_All_Star_0-33_screenshot.png)](https://knowyourmeme.com/memes/all-star)
-
-
