@@ -64,6 +64,10 @@ Se te convidarem para jantar e tomar um vinho, cuidado, Marilene!
 ## Sou Faraó
 [![Sou Faraó?](https://i.makeagif.com/media/5-03-2015/Uj2PP0.gif)](https://www.youtube.com/watch?v=n0-HLCrRGHo)
 
+## Você acredita em simpatia?
+
+[![Entrevista: Você acredita em simpatia?](https://www.google.com/search?q=meme+voc%C3%AA+acredita+em+simpatia&source=lnms&tbm=isch&sa=X&ved=0ahUKEwjJj-jCr7HeAhXBE5AKHbSjDJkQ_AUIDigB&biw=1366&bih=626#imgrc=dBOfdP0Q6_z8iM:](https://www.youtube.com/watch?v=WD2PZ5AGt58)
+
 ## E o bambú?
 
 Silvio Santos às vezes abria o programa para participação de pessoas da platéia. Uma vez uma menina pediu para contar uma piada e a piada era de baixo calão.
