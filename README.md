@@ -815,15 +815,21 @@ Novamente, pérolas do pensamento chapoliônico: conselhos para fofinhos.
 
 Zerar a NetFlix
 
-![ZerarNetFlix](https://www.altoastral.com.br/wp-content/uploads/2016/08/gretchen.gif)
+[![ZerarNetFlix](https://www.altoastral.com.br/wp-content/uploads/2016/08/gretchen.gif)]
 
+## He-Man: "HEYEAYEA" Live-Action
+
+"HEYYEYAAEYAAAEYAEYAA" é o título não oficial de um vídeo publicado em 2005, em que o personagem de super-heróis fictício He-Man canta uma versão de "Whats up" do "4 Non Blondes" lançada em 1992.
+
+Desde que estourou em maio de 2005, o vídeo gerou centenas de remixes, memes e paródias, dentre eles o "Fabulous Secret Powers Live Action" uma versão live action feita por "Tommy Gnall" em 2014.
+
+[![He-Man: "HEYEAYEA" Live-Action vs. Original](https://i.makeagif.com/media/9-04-2015/YQiIra.gif)](https://www.youtube.com/watch?v=0M9cypF0Pyk)
 
 ## Eduardo Jorge, o meme dos debates
 
 Yes, we Quero!
 
 ![Yes, we Quero!](http://www.latinpopbrasil.com.br/wp-content/uploads/2015/07/eduardo-jorge-quero.jpg)
-
 
 ## Eduardo Jorge, o spock brasileiro
 
