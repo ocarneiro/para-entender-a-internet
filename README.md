@@ -11,7 +11,7 @@ Quem quiser adesivos pode me procurar nos eventos!
 
 ## Sanduíche (iche)
 
-Ruth Lemos, nutricionista, dá dicas sobre uma alimentação saudável-ável que ofereça-ereça condições de uma melhora de vida de vida. 
+Ruth Lemos, nutricionista, dá dicas sobre uma alimentação saudável-ável que ofereça-ereça condições de uma melhora de vida de vida.
 
 [![Sanduicheiche](https://vignette.wikia.nocookie.net/meme/images/1/14/Ruth_Lemos.png/revision/latest?cb=20151016223957&path-prefix=pt-br)](https://www.youtube.com/watch?v=pmn-dbBpglU)
 
@@ -21,6 +21,12 @@ Ruth Lemos, nutricionista, dá dicas sobre uma alimentação saudável-ável que
 Bambam, participante do Big Brother Brasil (BBB) edição 1 de 2002, fez um vídeo malhando e falando muitos palavrões:
 
 [![BIRL](https://img.buzzfeed.com/buzzfeed-static/static/2016-05/31/12/asset/buzzfeed-prod-web14/anigif_sub-buzz-4076-1464711500-10.gif)](http://www.youtube.com/watch?v=zwvsa7DzzHY)
+
+## Trago a vocês e entrego Pororoca
+
+Richard correndo das ondas da pororoca no estado do Amapá:
+
+[![Pororoca](https://cdn.naosalvo.com.br/2016/05/ri.jpg)](https://www.youtube.com/watch?v=APURy5g6yNY)
 
 ## Fazer humanas e viver da arte, fazer miçangas
 
@@ -63,6 +69,10 @@ Se te convidarem para jantar e tomar um vinho, cuidado, Marilene!
 
 ## Sou Faraó
 [![Sou Faraó?](https://i.makeagif.com/media/5-03-2015/Uj2PP0.gif)](https://www.youtube.com/watch?v=n0-HLCrRGHo)
+
+## Você acredita em simpatia?
+
+[![Entrevista: Você acredita em simpatia?](https://www.google.com/search?q=meme+voc%C3%AA+acredita+em+simpatia&source=lnms&tbm=isch&sa=X&ved=0ahUKEwjJj-jCr7HeAhXBE5AKHbSjDJkQ_AUIDigB&biw=1366&bih=626#imgrc=dBOfdP0Q6_z8iM:](https://www.youtube.com/watch?v=WD2PZ5AGt58)
 
 ## E o bambú?
 
@@ -120,6 +130,12 @@ Será mesmo que você conhece cada passo desse chão? Seriado famoso nos anos 20
 e morreu!
 
 [![e morreu!](http://pa1.narvii.com/6532/f5684277ae6a9fadaccdcddd68ace49cd8516a32_hq.gif)](https://www.youtube.com/watch?v=kMbcgxUeYkc)
+
+## O feiticeiro do hexa
+
+Uma misteriosa figura foi capturada pelas imagens, permanecendo no ar por alguns segundos. Assim, o “Torcedor Misterioso”, o “Psicopata da Copa” ou o “Feiticeiro do Hexa” tornou-se um fenômeno imediato
+
+[![O feiticeiro do hexa](http://www.museudememes.com.br/wp-content/uploads/2018/07/feiticeiro-do-hexa-600x530.jpg)](https://www.youtube.com/watch?time_continue=1&v=Idta0fkYQ2U)
 
 
 ## Melody e sua amiga diva do falsete mostrando cultura para o Brasil
@@ -182,6 +198,13 @@ Marcio canuto, famoso reporter brasileiro, entrevista garotinho que fica nervoso
 
 [![## Cachorro? Que cachorro o que! Não sou cachorro não](http://img.youtube.com/vi/YvwEdt5CBQo/0.jpg)](https://www.youtube.com/watch?v=YvwEdt5CBQo)
 
+## Canarinho Pistola
+
+Essa mudança radical acabou sendo recebida, a princípio, com certa desconfiança pela CBF, que chegou até a formar uma versão mais alegre do personagem para comparecer a ações sociais com crianças e eventos em escolas. Foi a partir da repercussão contra essa possível mudança que o Canarinho começou a ganhar notoriedade e importância para o público, sendo, rapidamente, apelidado de Canarinho “Pistola” 
+
+
+[![Canarinho Pistola](http://www.museudememes.com.br/wp-content/uploads/2018/06/vSCPOrTi_400x400-2.jpg)](https://www.youtube.com/watch?time_continue=62&v=bFalKUC-Wds)
+
 
 ## Vanusa canta o hino nacional
 
@@ -210,6 +233,10 @@ A menina Isabela, revoltada ao saber que seu pai havia fechado a porta cobra exp
 
 [![QUERO CAFÉ](http://img.youtube.com/vi/VxRpkfcXEpA/0.jpg)](https://www.youtube.com/watch?v=VxRpkfcXEpA)
 
+## Quem não gosta, gosta, quem não gosta curte!
+
+[![Quem não gosta gosta, quem não gosta curte](https://www.google.com/search?q=quem+gosta+gosta+quem+n%C3%A3o+gosta+curte&source=lnms&tbm=isch&sa=X&ved=0ahUKEwjW6MDcp7HeAhWFS5AKHTaCDcAQ_AUIDigB&biw=1366&bih=626#imgrc=42O4VK0IeeyO0M:)](https://www.youtube.com/watch?v=6SfBPAKec88)
+
 ## Padre Quemedo e o filho do Capeta
 
 Hermes e Renato é provavelmente o maior concentrador de falas e expressões de cultura pop da geração nascida nos anos 90. Nesse vídeo, o Padre Quemedo questiona a veracidade de um suposto Filho do Capeta
@@ -219,6 +246,10 @@ Hermes e Renato é provavelmente o maior concentrador de falas e expressões de 
 ## Morre diabo!
 
 [![Morre diabo](http://img.youtube.com/vi/dAuE92NvuXU/0.jpg)](https://www.youtube.com/watch?v=dAuE92NvuXU)
+
+## Cê foi inocente agora
+
+[![Choque de Cultura: Cê foi inocente agora](https://cdn.dicionariopopular.com/imagens/ce-foi-inocente-agora-cke.jpg)](https://www.youtube.com/watch?v=4u1w1UnqI0Y)
 
 ## Jeremias muito louco!
 
@@ -360,7 +391,7 @@ ZA WARUDO!, ou THE WORLD! É um golpe criado pelo vampiro Dio Brando que possui 
 
 ## Yes - Roundabout / To Be Continued...
 
-Meme baseado no cliffhanger usado ao fim de episodios do anime Jojo’s Bizarre Adventure. 
+Meme baseado no cliffhanger usado ao fim de episodios do anime Jojo’s Bizarre Adventure.
 
 [![To Be Continued](https://i.makeagif.com/media/5-18-2016/SyNrOL.gif)](https://www.youtube.com/watch?v=4EMJl4sy)
 
@@ -793,8 +824,27 @@ A cena foi rápida e o gesto discreto. Mesmo assim, os fãs da saga Jornada nas 
 
 [![Spock Jorge](https://statig2.akamaized.net/bancodeimagens/3o/sv/ey/3osvey0lz19ohpddrtquiw3l8.jpg)](https://www.youtube.com/watch?v=qT8-UX6kxH8)
 
+
 ## Rogerinho do Ingá - Achou errado, OTÁRIO!
 
 Frase padrão de abertura do programa Choque de Cultura, onde Rogerinho do Ingá diz algo como "Você achou que a gente não ia falar sobre série de criança? Achou errado, OTÁRIO!"
 
 ![Otário](https://cdn-images-1.medium.com/max/1600/1*yn8BJy8tHQ2yQm4htdz2ZQ.gif)
+
+## Julinho da van - "É tudo computador essa porra!"
+
+Julinho da van, do programa Choque de Cultura, ao falar sobre os efeitos especiais de um filme soltou essa frase. Agora é usada para tudo que parece fake e feito por computador.
+
+![Tudo computador](https://media1.tenor.com/images/f0a24a5cf1be3288d1c4f18bba32626e/tenor.gif?itemid&)
+
+## Acertô, Miseravi!!
+
+Quem te ensinou? Esse meme se espalhou pela Bahia inteira, e agora já é quase um dito popular.
+
+[![Miseravi](https://i.ytimg.com/vi/iEZk0iifCEk/hqdefault.jpg)](https://www.youtube.com/watch?v=grNlD2GpvyY)
+
+## Truco valendo o toba
+
+O video é antigo, remonta o ano de 2007, um jovem morador de rua decide jogar um truco no qual aposta seu toba, o pequeno detalhe é que o mesmo não sabia jogar truco, manteve por anos a expressão "Cê chama a ambulança?"
+
+[![Truco valendo o toba](https://pm1.narvii.com/6367/15691778f453028622557030a09c6bdede2998b7_hq.jpg)](https://www.youtube.com/watch?v=yVKk5AmbI0E)
