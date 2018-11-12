@@ -824,6 +824,11 @@ A cena foi rápida e o gesto discreto. Mesmo assim, os fãs da saga Jornada nas 
 
 [![Spock Jorge](https://statig2.akamaized.net/bancodeimagens/3o/sv/ey/3osvey0lz19ohpddrtquiw3l8.jpg)](https://www.youtube.com/watch?v=qT8-UX6kxH8)
 
+## Renan "Pode mandar um recado?" - Choque de cultura
+
+Renan, do Choque de Cultura, pergunta se pode mandar um recado ao final do programa.
+
+![Recado](https://media1.tenor.com/images/bf243885a622aa91b3f118ae529c0faa/tenor.gif?itemid=10751853)
 
 ## Rogerinho do Ingá - Achou errado, OTÁRIO!
 
