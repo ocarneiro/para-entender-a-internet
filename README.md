@@ -824,6 +824,12 @@ A cena foi rápida e o gesto discreto. Mesmo assim, os fãs da saga Jornada nas 
 
 [![Spock Jorge](https://statig2.akamaized.net/bancodeimagens/3o/sv/ey/3osvey0lz19ohpddrtquiw3l8.jpg)](https://www.youtube.com/watch?v=qT8-UX6kxH8)
 
+## Show!
+
+Cena onde Renan, do programa Choque de Cultura, diz "Show!". O programa Choque de Cultura fala sobre cinema de uma maneira diferente e divertida.
+
+![Show!](https://i.gifer.com/JNv.gif)
+
 ## Renan "Pode mandar um recado?" - Choque de cultura
 
 Renan, do Choque de Cultura, pergunta se pode mandar um recado ao final do programa.
