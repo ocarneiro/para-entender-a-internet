@@ -824,6 +824,13 @@ A cena foi rápida e o gesto discreto. Mesmo assim, os fãs da saga Jornada nas 
 
 [![Spock Jorge](https://statig2.akamaized.net/bancodeimagens/3o/sv/ey/3osvey0lz19ohpddrtquiw3l8.jpg)](https://www.youtube.com/watch?v=qT8-UX6kxH8)
 
+
+## Rogerinho do Ingá - Achou errado, OTÁRIO!
+
+Frase padrão de abertura do programa Choque de Cultura, onde Rogerinho do Ingá diz algo como "Você achou que a gente não ia falar sobre série de criança? Achou errado, OTÁRIO!"
+
+![Otário](https://cdn-images-1.medium.com/max/1600/1*yn8BJy8tHQ2yQm4htdz2ZQ.gif)
+
 ## Julinho da van - "É tudo computador essa porra!"
 
 Julinho da van, do programa Choque de Cultura, ao falar sobre os efeitos especiais de um filme soltou essa frase. Agora é usada para tudo que parece fake e feito por computador.
