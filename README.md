@@ -11,7 +11,7 @@ Quem quiser adesivos pode me procurar nos eventos!
 
 ## Sanduíche (iche)
 
-Ruth Lemos, nutricionista, dá dicas sobre uma alimentação saudável-ável que ofereça-ereça condições de uma melhora de vida de vida. 
+Ruth Lemos, nutricionista, dá dicas sobre uma alimentação saudável-ável que ofereça-ereça condições de uma melhora de vida de vida.
 
 [![Sanduicheiche](https://vignette.wikia.nocookie.net/meme/images/1/14/Ruth_Lemos.png/revision/latest?cb=20151016223957&path-prefix=pt-br)](https://www.youtube.com/watch?v=pmn-dbBpglU)
 
@@ -21,6 +21,12 @@ Ruth Lemos, nutricionista, dá dicas sobre uma alimentação saudável-ável que
 Bambam, participante do Big Brother Brasil (BBB) edição 1 de 2002, fez um vídeo malhando e falando muitos palavrões:
 
 [![BIRL](https://img.buzzfeed.com/buzzfeed-static/static/2016-05/31/12/asset/buzzfeed-prod-web14/anigif_sub-buzz-4076-1464711500-10.gif)](http://www.youtube.com/watch?v=zwvsa7DzzHY)
+
+## Trago a vocês e entrego Pororoca
+
+Richard correndo das ondas da pororoca no estado do Amapá:
+
+[![Pororoca](https://cdn.naosalvo.com.br/2016/05/ri.jpg)](https://www.youtube.com/watch?v=APURy5g6yNY)
 
 ## Fazer humanas e viver da arte, fazer miçangas
 
@@ -372,7 +378,7 @@ ZA WARUDO!, ou THE WORLD! É um golpe criado pelo vampiro Dio Brando que possui 
 
 ## Yes - Roundabout / To Be Continued...
 
-Meme baseado no cliffhanger usado ao fim de episodios do anime Jojo’s Bizarre Adventure. 
+Meme baseado no cliffhanger usado ao fim de episodios do anime Jojo’s Bizarre Adventure.
 
 [![To Be Continued](https://i.makeagif.com/media/5-18-2016/SyNrOL.gif)](https://www.youtube.com/watch?v=4EMJl4sy)
 
