@@ -793,9 +793,14 @@ A cena foi rápida e o gesto discreto. Mesmo assim, os fãs da saga Jornada nas 
 
 [![Spock Jorge](https://statig2.akamaized.net/bancodeimagens/3o/sv/ey/3osvey0lz19ohpddrtquiw3l8.jpg)](https://www.youtube.com/watch?v=qT8-UX6kxH8)
 
-
 ## Acertô, Miseravi!!
 
 Quem te ensinou? Esse meme se espalhou pela Bahia inteira, e agora já é quase um dito popular.
 
 [![Miseravi](https://i.ytimg.com/vi/iEZk0iifCEk/hqdefault.jpg)](https://www.youtube.com/watch?v=grNlD2GpvyY)
+
+## Truco valendo o toba
+
+O video é antigo, remonta o ano de 2007, um jovem morador de rua decide jogar um truco no qual aposta seu toba, o pequeno detalhe é que o mesmo não sabia jogar truco, manteve por anos a expressão "Cê chama a ambulança?"
+
+[![Truco valendo o toba](https://pm1.narvii.com/6367/15691778f453028622557030a09c6bdede2998b7_hq.jpg)](https://www.youtube.com/watch?v=yVKk5AmbI0E)
