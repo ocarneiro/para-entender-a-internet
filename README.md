@@ -824,6 +824,12 @@ A cena foi rápida e o gesto discreto. Mesmo assim, os fãs da saga Jornada nas 
 
 [![Spock Jorge](https://statig2.akamaized.net/bancodeimagens/3o/sv/ey/3osvey0lz19ohpddrtquiw3l8.jpg)](https://www.youtube.com/watch?v=qT8-UX6kxH8)
 
+## Maurílio "Boa noite amantes da sétima arte"
+
+Maurílio dos anjos, do programa Choque de Cultura, usa essa frase como padrão para cumprimentar o pessoal que assiste o programa.
+
+![Boa noite!](https://cdn.dicionariopopular.com/imagens/boa-noite-amantes-da-setima-arte-cke.jpg)
+
 ## Show!
 
 Cena onde Renan, do programa Choque de Cultura, diz "Show!". O programa Choque de Cultura fala sobre cinema de uma maneira diferente e divertida.
