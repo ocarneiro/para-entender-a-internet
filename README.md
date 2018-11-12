@@ -817,6 +817,12 @@ Zerar a NetFlix
 
 [![ZerarNetFlix](https://www.altoastral.com.br/wp-content/uploads/2016/08/gretchen.gif)]
 
+## Fábio Assunção chama o sargento
+
+Fábio Assunção, muito chapado e preso na viatura, manda desesperadamente chamar o sargento.
+
+[![Chama o sargento](https://pbs.twimg.com/media/DDGUvMfXsAAxMAU.jpg)](https://www.youtube.com/watch?v=AFcBkceZYu8)
+
 ## He-Man: "HEYEAYEA" Live-Action
 
 "HEYYEYAAEYAAAEYAEYAA" é o título não oficial de um vídeo publicado em 2005, em que o personagem de super-heróis fictício He-Man canta uma versão de "Whats up" do "4 Non Blondes" lançada em 1992.
