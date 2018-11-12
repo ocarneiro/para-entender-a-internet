@@ -192,6 +192,13 @@ Marcio canuto, famoso reporter brasileiro, entrevista garotinho que fica nervoso
 
 [![## Cachorro? Que cachorro o que! Não sou cachorro não](http://img.youtube.com/vi/YvwEdt5CBQo/0.jpg)](https://www.youtube.com/watch?v=YvwEdt5CBQo)
 
+## Canarinho Pistola
+
+Essa mudança radical acabou sendo recebida, a princípio, com certa desconfiança pela CBF, que chegou até a formar uma versão mais alegre do personagem para comparecer a ações sociais com crianças e eventos em escolas. Foi a partir da repercussão contra essa possível mudança que o Canarinho começou a ganhar notoriedade e importância para o público, sendo, rapidamente, apelidado de Canarinho “Pistola” 
+
+
+[![Canarinho Pistola](http://www.museudememes.com.br/wp-content/uploads/2018/06/vSCPOrTi_400x400-2.jpg)](https://www.youtube.com/watch?time_continue=62&v=bFalKUC-Wds)
+
 
 ## Vanusa canta o hino nacional
 
