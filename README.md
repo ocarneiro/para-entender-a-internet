@@ -250,12 +250,6 @@ Nunca fale uma coisa idiota perto do Caetano!
 
 [![Como você é burro cara!](https://media.giphy.com/media/uZfADsbOw4Dcs/giphy.gif)](https://www.youtube.com/watch?v=lOxSDaTfujU)
 
-## Como você é burro cara!
-
-Nunca fale uma coisa idiota perto do Caetano!
-
-[![Como você é burro cara!](https://media.giphy.com/media/uZfADsbOw4Dcs/giphy.gif)](https://www.youtube.com/watch?v=lOxSDaTfujU)
-
 
 ## Por que você não amadurece?
 
