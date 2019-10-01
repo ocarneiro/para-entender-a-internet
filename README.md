@@ -884,3 +884,8 @@ Quem te ensinou? Esse meme se espalhou pela Bahia inteira, e agora já é quase 
 O video é antigo, remonta o ano de 2007, um jovem morador de rua decide jogar um truco no qual aposta seu toba, o pequeno detalhe é que o mesmo não sabia jogar truco, manteve por anos a expressão "Cê chama a ambulança?"
 
 [![Truco valendo o toba](https://pm1.narvii.com/6367/15691778f453028622557030a09c6bdede2998b7_hq.jpg)](https://www.youtube.com/watch?v=yVKk5AmbI0E)
+
+## Cleiton Rasta - Cabeça de gelo
+
+Vai debochando! 
+[![Cleiton Rasta comandando a festa](https://vignette.wikia.nocookie.net/do-vt/images/c/cd/10_cleiton_cabeca_de_gelo/revision/latest/scale-to-width-down/341?cb=20141215041636&path-prefix=pt-br)](https://www.youtube.com/watch?v=cb7lRInEa6c)
