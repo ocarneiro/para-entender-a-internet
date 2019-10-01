@@ -884,3 +884,9 @@ Quem te ensinou? Esse meme se espalhou pela Bahia inteira, e agora já é quase 
 O video é antigo, remonta o ano de 2007, um jovem morador de rua decide jogar um truco no qual aposta seu toba, o pequeno detalhe é que o mesmo não sabia jogar truco, manteve por anos a expressão "Cê chama a ambulança?"
 
 [![Truco valendo o toba](https://pm1.narvii.com/6367/15691778f453028622557030a09c6bdede2998b7_hq.jpg)](https://www.youtube.com/watch?v=yVKk5AmbI0E)
+
+## João Gordo vs. Dado Dolabella
+
+Durante o antigo programa do João Gordo "Gordo a Go-Go", o apresentador e Dado discutiram feio, rendendo bons memes, risadas e um [video](https://youtu.be/B_ajSTCy7WQ) do artista youtuber Rabisco.
+
+[![João Gordo vs. Dado Dolabella](https://www.opopular.com.br/polopoly_fs/1.1458529.1518355307!/image/image.JPG_gen/derivatives/landscape_800/image.JPG)](https://www.youtube.com/watch?v=S4pDpA-g7hE)
