@@ -49,6 +49,11 @@ Um pouco antes do jogo da seleção brasileira contra o México na Copa da Rúss
 
 [![O Feiticeiro do Hexa](https://www.24horasnews.com.br/imagem/resize/1110/550/imagens/2018/07/04/psicopata-brazuca-que-virou-meme-e-russo-e-torce-para-o-brasil-na-copa.jpg)](https://youtu.be/Idta0fkYQ2U)
 
+## Oi, meu nome é Betina
+
+Bettina Rudolph é uma jovem brasileira que virou meme por causa de uma publicidade veiculada no Youtube. Nela, Bettina revela que aos 22 anos já acumulou 1 milhão e 42 mil reais em patrimônios, apenas fazendo investimentos, e que teria começado somente com 1.520 reais.
+[![Betina](https://ogimg.infoglobo.com.br/in/23531866-04b-85a/FT1086A/652/xbettina.jpg.pagespeed.ic._2iVqjsr8I.jpg)](https://www.youtube.com/watch?v=guM8PhzVpF8)
+
 ## Tainha, vinho...
 
 Se te convidarem para jantar e tomar um vinho, cuidado, Marilene!
