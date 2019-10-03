@@ -884,3 +884,13 @@ Quem te ensinou? Esse meme se espalhou pela Bahia inteira, e agora já é quase 
 O video é antigo, remonta o ano de 2007, um jovem morador de rua decide jogar um truco no qual aposta seu toba, o pequeno detalhe é que o mesmo não sabia jogar truco, manteve por anos a expressão "Cê chama a ambulança?"
 
 [![Truco valendo o toba](https://pm1.narvii.com/6367/15691778f453028622557030a09c6bdede2998b7_hq.jpg)](https://www.youtube.com/watch?v=yVKk5AmbI0E)
+
+## Putz kkk
+
+![Andressa Urach](https://pbs.twimg.com/media/Dv3T-_NWoAAg72R.jpg)
+
+## Rainha dos memes!
+
+Nossa querida rainha dos memes, Gretchen!
+
+![Gretchen](https://www.altoastral.com.br/wp-content/uploads/2016/08/gretchen-gifs-meme.jpg)
