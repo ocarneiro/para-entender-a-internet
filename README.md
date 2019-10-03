@@ -122,14 +122,14 @@ Oriúndo do animê Hokuto no ken(1983), viralizou nos segundo semestre de 2017. 
 
 Será mesmo que você conhece cada passo desse chão? Seriado famoso nos anos 2000, nos maravilhou com esse incrível meme! Salve grande Carga pesada!
 
-[![É uma cilada Bino!](http://www.assimpassei.com.br/wp-content/uploads/2014/04/bino.gif)](https://www.youtube.com/watch?v=86WRiqOTf4M)
+[![É uma cilada Bino!](https://www.google.com/url?sa=i&source=images&cd=&ved=2ahUKEwjbr4DJ54DlAhXlIrkGHW4wCMQQjRx6BAgBEAQ&url=https%3A%2F%2Ftenor.com%2Fview%2Fcilada-bino-pedro-carga-gif-7379400&psig=AOvVaw35ePshrAlD37DUztwMx4ao&ust=1570216802846640)](https://www.youtube.com/watch?v=86WRiqOTf4M)
 
 
 ## Nazaré Confusa!
 
 %}{"}$¨& & _ @ > >
 
-[![Nazaré confusa!](http://s2.glbimg.com/6Nj5RJmCqwSQ2KYhCLAmHHmQ36c=/288x0/top/s.glbimg.com/jo/eg/f/original/2016/10/14/nazaaa.gif)](https://www.youtube.com/watch?v=86WRiqOTf4M)
+[![Nazaré confusa!](http://s2.glbimg.com/6Nj5RJmCqwSQ2KYhCLAmHHmQ36c=/288x0/top/s.glbimg.com/jo/eg/f/original/2016/10/14/nazaaa.gif)](https://youtu.be/Mg6xahJN-rE)
 
 
 ## No céu tem pão?
