@@ -887,4 +887,10 @@ O video é antigo, remonta o ano de 2007, um jovem morador de rua decide jogar u
 
 ## Putz kkk
 
-[![Andressa Urach](https://pbs.twimg.com/media/Dv3T-_NWoAAg72R.jpg)]
+![Andressa Urach](https://pbs.twimg.com/media/Dv3T-_NWoAAg72R.jpg)
+
+## Rainha dos memes!
+
+Nossa querida rainha dos memes, Gretchen!
+
+![Gretchen](https://www.altoastral.com.br/wp-content/uploads/2016/08/gretchen-gifs-meme.jpg)
