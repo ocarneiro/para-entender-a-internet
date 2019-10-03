@@ -82,13 +82,13 @@ A modelo Adriana Lima foi entrevistada e enviou o beijinho mais famoso da intern
 
 ## Você acredita em simpatia?
 
-[![Entrevista: Você acredita em simpatia?](https://www.google.com/search?q=meme+voc%C3%AA+acredita+em+simpatia&source=lnms&tbm=isch&sa=X&ved=0ahUKEwjJj-jCr7HeAhXBE5AKHbSjDJkQ_AUIDigB&biw=1366&bih=626#imgrc=dBOfdP0Q6_z8iM:](https://www.youtube.com/watch?v=WD2PZ5AGt58)
+[![Entrevista: Você acredita em simpatia?](https://www.google.com/search?q=meme+voc%C3%AA+acredita+em+simpatia&source=lnms&tbm=isch&sa=X&ved=0ahUKEwjJj-jCr7HeAhXBE5AKHbSjDJkQ_AUIDigB&biw=1366&bih=626#imgrc=dBOfdP0Q6_z8iM:)](https://www.youtube.com/watch?v=WD2PZ5AGt58)
 
 ## E o bambú?
 
 Silvio Santos às vezes abria o programa para participação de pessoas da platéia. Uma vez uma menina pediu para contar uma piada e a piada era de baixo calão.
 
-[![E o bambú?](http://geekvox.com.br/wp-content/uploads/2015/01/11.gif)](https://www.youtube.com/watch?v=7Nkvvo4RvGw)
+[![E o bambú?](https://cdn.naosalvo.com.br/2010/11/7Nkvvo4RvGw.jpg)](https://www.youtube.com/watch?v=7Nkvvo4RvGw)
 
 
 ## Bed intruder song
@@ -111,7 +111,7 @@ Dava pra melhor com certeza, quer dizer que ia mudar melhor, já tava bom, disse
 
 Oriúndo do animê Hokuto no ken(1983), viralizou nos segundo semestre de 2017. É usado quando alguém aplica um golpe ( verbal ou fisico ) em outro de forma arrasadora. A tradução é " você já está morto! O que?? "
 
-[![## Omae wa mou shindeiru! Nani??](http://img.youtube.com/vi/YSgpU70MZno/0.jpg)](http://www.youtube.com/watch?v=YSgpU70MZno)
+[![## Omae wa mou shindeiru! Nani??](https://i.imgflip.com/21a420.jpg)](https://www.youtube.com/watch?v=dNQs_Bef_V8)
 
 ## Ai que susto!
 
@@ -122,7 +122,7 @@ Oriúndo do animê Hokuto no ken(1983), viralizou nos segundo semestre de 2017. 
 
 Será mesmo que você conhece cada passo desse chão? Seriado famoso nos anos 2000, nos maravilhou com esse incrível meme! Salve grande Carga pesada!
 
-[![É uma cilada Bino!](http://www.assimpassei.com.br/wp-content/uploads/2014/04/bino.gif)](https://www.youtube.com/watch?v=86WRiqOTf4M)
+[![## É uma cilada Bino!](https://66.media.tumblr.com/tumblr_lvmt4tFI3P1r0t26j.gif)](https://www.youtube.com/watch?v=86WRiqOTf4M)
 
 
 ## Nazaré Confusa!
@@ -140,14 +140,14 @@ e morreu!
 
 ## O feiticeiro do hexa
 
-Uma misteriosa figura foi capturada pelas imagens, permanecendo no ar por alguns segundos. Assim, o “Torcedor Misterioso”, o “Psicopata da Copa” ou o “Feiticeiro do Hexa” tornou-se um fenômeno imediato
+Uma misteriosa figura foi capturada pelas imagens, permanecendo no ar por alguns segundos. Assim, o “Torcedor Misterioso”, o “Psicopata da Copa” ou o “Feiticeiro do Hexa” tornou-se um fenômeno imediato.
 
 [![O feiticeiro do hexa](http://www.museudememes.com.br/wp-content/uploads/2018/07/feiticeiro-do-hexa-600x530.jpg)](https://www.youtube.com/watch?time_continue=1&v=Idta0fkYQ2U)
 
 
 ## Melody e sua amiga diva do falsete mostrando cultura para o Brasil
 
-[![## Melody e diva do falset](http://img.youtube.com/vi/-Ln9Zn1dObI/0.jpg)](https://www.youtube.com/watch?v=-Ln9Zn1dObI)
+[![## Melody e diva do falsete](https://uploads.metropoles.com/wp-content/uploads/2017/01/31142512/melody.jpg)](https://www.youtube.com/watch?v=WaSKoq-L6MI)
 
 ## Side Eyeing Chloe
 
@@ -180,7 +180,7 @@ Edição especial Pybr13!
 
 O forninho caiuuu!!
 
-[![## Eita giovanaaaa](https://i.ytimg.com/vi/U5P3raTyKKA/hqdefault.jpg)](https://www.youtube.com/watch?v=U5P3raTyKKA)
+[![## Eita giovanaaaa](https://img.vixdata.io/pd/jpg-large/pt/sites/default/files/g/giovanna-forninho-video-0517-1400x800.jpg)](https://www.youtube.com/watch?v=rK1qOxn7Rdk)
 
 
 ## Xuxa - Aham Cláudia, Senta lá.
@@ -242,7 +242,7 @@ A menina Isabela, revoltada ao saber que seu pai havia fechado a porta cobra exp
 
 ## Quem não gosta, gosta, quem não gosta curte!
 
-[![Quem não gosta gosta, quem não gosta curte](https://www.google.com/search?q=quem+gosta+gosta+quem+n%C3%A3o+gosta+curte&source=lnms&tbm=isch&sa=X&ved=0ahUKEwjW6MDcp7HeAhWFS5AKHTaCDcAQ_AUIDigB&biw=1366&bih=626#imgrc=42O4VK0IeeyO0M:)](https://www.youtube.com/watch?v=6SfBPAKec88)
+[![Quem não gosta gosta, quem não gosta curte](https://i.ytimg.com/vi/_0VggHijeFE/hqdefault.jpg)](https://www.youtube.com/watch?v=6SfBPAKec88)
 
 ## Padre Quemedo e o filho do Capeta
 
@@ -280,7 +280,7 @@ Adriano cansou da mídia pegando no pé dele
 
 Craque nos campos e no Twitter, Neymar deixa mensagens valiosas para nós e outros seres também!
 
-[![Deus é Top!](https://pbs.twimg.com/media/C0zM2yDXAAUgeuW.jpg)](http://blog.chicorei.com/neymar/)
+[![Deus é Top!](https://static1.purebreak.com.br/articles/9/52/80/9/@/225066-neymar-jr-e-sua-fe-inabalavel-624x0-1.png)](http://blog.chicorei.com/neymar/)
 
 ## Como você é burro cara!
 
@@ -305,7 +305,7 @@ Eu sou Nissim, Nissim Ourfaaaalii!!
 
 Apresentação de uma brincadeira feita com palitos de fósforos e um cepo de madeira.
 
-[![Cepo de madeira](https://i.ytimg.com/vi/WQrTrbMAixk/hqdefault.jpg)](https://www.youtube.com/watch?v=Omwbh6Jo1IM)
+[![Cepo de madeira](https://pm1.narvii.com/6547/0a99f0c629bb2d3346eb440d8411632349f8fa59_hq.jpg)](https://www.youtube.com/watch?v=Omwbh6Jo1IM)
 ## Rap do homem macaco
 
 O homem que não tem alma e nem coração, correndo atrás de você, querendo te rasgar...
@@ -453,7 +453,7 @@ O que as crianças levam nessas mochilas ?!...
 
 Corre para não tomar chuva :'D
 
-[![cavalinho andando sozinho](https://i.ytimg.com/vi/I1JCat2qM1I/hqdefault.jpg)](https://youtu.be/I1JCat2qM1I)
+[![cavalinho andando sozinho](http://o.aolcdn.com/hss/storage/midas/6271412839340b0f16c5fd5389136396/205795599/Design+sem+nome+%2852%29.png)](https://www.youtube.com/watch?v=ALodFq2vM1Q)
 
 ## Faustop
 
@@ -545,7 +545,7 @@ Durante a Copa do Mundo de 2018, Yury Torsky viralizou por ter cara de psicopata
 
 Gabriel dançando de pernas abertas um funk no programa casos de família.
 
-[![Caindo no casos de  família](https://i.ytimg.com/vi/wXM1kcwmJzs/maxresdefault.jpg)](https://www.youtube.com/watch?v=0ec5Y65kZto)
+[![Caindo no casos de  família](http://images.virgula.com.br/2017/06/caindo-no-casos-de-familia.jpg)](https://www.youtube.com/watch?v=0ec5Y65kZto)
 
 ## Kingsize de Niterói
 
@@ -696,9 +696,7 @@ Excelente ministração do pastor sobre como os fiéis devem lavar o cu.
 
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
-[![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
-
-[![Outfit](https://media1.tenor.com/images/856dedf10849fc68f009f0159479152c/tenor.gif?itemid=11944888)](https://www.youtube.com/watch?v=u6b_T0aZnVY)
+[![Eu sou rolezeira](http://pm1.narvii.com/6523/af85b8d60b7e4adfc0f068fdc45c19b9cf29724b_00.jpg)](https://www.youtube.com/watch?v=eLsqu8ezH-M)
 
 ## Nutella
 
@@ -778,8 +776,7 @@ Nada haver, irmão!
 
 Ela é uma boa menina... Vamos pular....
 
-[![Vinicius Jr](https://www.torcedores.com/content/uploads/2018/10/Vinicius-Jr1.jpg)](https://youtu.be/kv96Y0kS7Ns)
-[![EOQ](https://i.ytimg.com/vi/MaW4fY8ScYw/hqdefault.jpg)](https://youtu.be/MaW4fY8ScYw)
+[![Vinicius Jr](https://extra.globo.com/incoming/23124507-1d1-623/w448h673-PROP/xvinicius-junior-1.jpg.pagespeed.ic.oyD-G6kzRM.jpg)](https://youtu.be/kv96Y0kS7Ns)
 
 ## Meu pai é o Thor
 
@@ -853,7 +850,7 @@ Maurílio dos anjos, do programa Choque de Cultura, usa essa frase como padrão 
 
 Cena onde Renan, do programa Choque de Cultura, diz "Show!". O programa Choque de Cultura fala sobre cinema de uma maneira diferente e divertida.
 
-![Show!](https://i.gifer.com/JNv.gif)
+![Show!](https://i.gifer.com/JNv.gif)(https://www.youtube.com/watch?v=lTlYlFjJep4)
 
 ## Renan "Pode mandar um recado?" - Choque de cultura
 
