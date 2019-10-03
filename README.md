@@ -82,13 +82,13 @@ A modelo Adriana Lima foi entrevistada e enviou o beijinho mais famoso da intern
 
 ## Você acredita em simpatia?
 
-[![Entrevista: Você acredita em simpatia?](https://www.google.com/search?q=meme+voc%C3%AA+acredita+em+simpatia&source=lnms&tbm=isch&sa=X&ved=0ahUKEwjJj-jCr7HeAhXBE5AKHbSjDJkQ_AUIDigB&biw=1366&bih=626#imgrc=dBOfdP0Q6_z8iM:](https://www.youtube.com/watch?v=WD2PZ5AGt58)
+[![Entrevista: Você acredita em simpatia?](https://www.google.com/search?q=meme+voc%C3%AA+acredita+em+simpatia&source=lnms&tbm=isch&sa=X&ved=0ahUKEwjJj-jCr7HeAhXBE5AKHbSjDJkQ_AUIDigB&biw=1366&bih=626#imgrc=dBOfdP0Q6_z8iM:)](https://www.youtube.com/watch?v=WD2PZ5AGt58)
 
 ## E o bambú?
 
 Silvio Santos às vezes abria o programa para participação de pessoas da platéia. Uma vez uma menina pediu para contar uma piada e a piada era de baixo calão.
 
-[![E o bambú?](http://geekvox.com.br/wp-content/uploads/2015/01/11.gif)](https://www.youtube.com/watch?v=7Nkvvo4RvGw)
+[![E o bambú?](https://cdn.naosalvo.com.br/2010/11/7Nkvvo4RvGw.jpg)](https://www.youtube.com/watch?v=7Nkvvo4RvGw)
 
 
 ## Bed intruder song
@@ -111,7 +111,7 @@ Dava pra melhor com certeza, quer dizer que ia mudar melhor, já tava bom, disse
 
 Oriúndo do animê Hokuto no ken(1983), viralizou nos segundo semestre de 2017. É usado quando alguém aplica um golpe ( verbal ou fisico ) em outro de forma arrasadora. A tradução é " você já está morto! O que?? "
 
-[![## Omae wa mou shindeiru! Nani??](http://img.youtube.com/vi/YSgpU70MZno/0.jpg)](http://www.youtube.com/watch?v=YSgpU70MZno)
+[![## Omae wa mou shindeiru! Nani??](https://i.imgflip.com/21a420.jpg)](https://www.youtube.com/watch?v=dNQs_Bef_V8)
 
 ## Ai que susto!
 
@@ -122,7 +122,7 @@ Oriúndo do animê Hokuto no ken(1983), viralizou nos segundo semestre de 2017. 
 
 Será mesmo que você conhece cada passo desse chão? Seriado famoso nos anos 2000, nos maravilhou com esse incrível meme! Salve grande Carga pesada!
 
-[![É uma cilada Bino!](http://www.assimpassei.com.br/wp-content/uploads/2014/04/bino.gif)](https://www.youtube.com/watch?v=86WRiqOTf4M)
+[![## É uma cilada Bino!](https://66.media.tumblr.com/tumblr_lvmt4tFI3P1r0t26j.gif)](https://www.youtube.com/watch?v=86WRiqOTf4M)
 
 
 ## Nazaré Confusa!
@@ -140,7 +140,7 @@ e morreu!
 
 ## O feiticeiro do hexa
 
-Uma misteriosa figura foi capturada pelas imagens, permanecendo no ar por alguns segundos. Assim, o “Torcedor Misterioso”, o “Psicopata da Copa” ou o “Feiticeiro do Hexa” tornou-se um fenômeno imediato
+Uma misteriosa figura foi capturada pelas imagens, permanecendo no ar por alguns segundos. Assim, o “Torcedor Misterioso”, o “Psicopata da Copa” ou o “Feiticeiro do Hexa” tornou-se um fenômeno imediato.
 
 [![O feiticeiro do hexa](http://www.museudememes.com.br/wp-content/uploads/2018/07/feiticeiro-do-hexa-600x530.jpg)](https://www.youtube.com/watch?time_continue=1&v=Idta0fkYQ2U)
 
