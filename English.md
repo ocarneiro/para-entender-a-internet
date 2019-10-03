@@ -14,8 +14,3 @@ Confused Travolta is an animated GIF series featuring a cutout of actor John Tra
 
 [![Confused Travolta](http://i0.kym-cdn.com/photos/images/original/001/042/619/4ea.jpg)](http://knowyourmeme.com/memes/confused-travolta)
 
-## No God please no!
-
-Michael Scott, played by Steve Carrel on the TV show "The Office", in one of the most famous scenes where he turns into a meme.
-
-[![Pissed Michael Scott](https://i.kym-cdn.com/photos/images/newsfeed/000/865/302/3d5.gif)]
