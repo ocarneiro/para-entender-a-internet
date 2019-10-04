@@ -886,5 +886,6 @@ O video é antigo, remonta o ano de 2007, um jovem morador de rua decide jogar u
 [![Truco valendo o toba](https://pm1.narvii.com/6367/15691778f453028622557030a09c6bdede2998b7_hq.jpg)](https://www.youtube.com/watch?v=yVKk5AmbI0E)
 
 ## Boa noite Bruno
+Vídeo do senhorzinho que só queria mandar um boa noite, mas o app não deixou
 
 [![Boa noite bruno](https://www.ahnegao.com.br/wp-content/uploads/2019/02/3-14.jpg)](https://www.youtube.com/watch?v=hECmWCcJT5c)
