@@ -407,3 +407,9 @@ Excelente ministração do pastor sobre como os fiéis devem lavar o cu.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+
+## Tá pegando fogo bixo
+
+Reação do exêntrica de Faustão ao ver fogo em seu programa de televisão.
+
+![Tá pegando fogo bixo](https://pbs.twimg.com/media/DFHjEI9XYAAzn5X.jpg)
