@@ -626,3 +626,9 @@ Filhinha enche o pai de desaforo na maior fofura.
 
 [![Prengada](https://i.ytimg.com/vi/ceaBV2D37r8/hqdefault.jpg)](https://www.instagram.com/p/B3SOUDwp3t2/)
 
+## Mestre Splinter!
+
+Esse provavelmente, é o ratinho mais valente que você verá por aqui, provavelmente ele foi discípulo do Mestre Splinter.
+
+[![Mestre Splinter](https://scontent-lga3-1.cdninstagram.com/vp/1ee6f0af61eaf9d94559574d238e81dd/5E383D94/t51.2885-15/sh0.08/e35/s640x640/67694359_371347723552634_6197094852929592458_n.jpg?_nc_ht=scontent-lga3-1.cdninstagram.com&_nc_cat=102)](https://www.instagram.com/p/B3GUY7XgGuw/)
+
