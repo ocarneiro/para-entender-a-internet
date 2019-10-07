@@ -613,3 +613,9 @@ Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 Em 2019 a conta mais popular, possuindo mais de 10 milhões de seguidores, foi a de um ovo.
 
 [![Egg Gang](https://cdn.vox-cdn.com/thumbor/VD8JI2zquKWDCQuPxlc6Rnhw-1I=/0x0:876x584/1200x800/filters:focal(368x222:508x362)/cdn.vox-cdn.com/uploads/chorus_image/image/62841097/instagram_egg.0.jpg)](https://www.instagram.com/world_record_egg/)
+
+## Desafio da garrafa
+
+O Jason Statham personificou um dos personagens de filme dele e completou o desafio como um mestre!
+
+[![Egg Gang](https://hips.hearstapps.com/hmg-prod.s3.amazonaws.com/images/bottle-cap-challenge-1562008238.jpg)](https://www.instagram.com/p/BzYT3WpBDfe/?utm_source=ig_embed)
