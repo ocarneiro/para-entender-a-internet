@@ -1,4 +1,4 @@
-﻿# Para entender a internet
+# Para entender a internet
 Videos e memes obrigatórios para conversas do dia-a-dia
 
 Você já se sentiu excluído por não entender comentários de pessoas na rua enquanto parece que todo o resto das pessoas está rindo? Talvez lhe falte cultura da internet.
@@ -8,6 +8,12 @@ Seus problemas acabaram! Neste repositório você encontrará as referências qu
 Sinta-se à vontade para contribuir com pull requests! [Instruções.](CONTRIBUTING.md)
 
 Quem quiser adesivos pode me procurar nos eventos!
+
+## Bun can you do this
+
+Pewdipew, a sua cadeira consegue inclinar em um angulo de 180° graus.
+
+[![Can you do thiisss](https://i.kym-cdn.com/entries/icons/original/000/025/142/can_u_do_this.jpg)](https://youtu.be/teEhc18hZTA)
 
 ## Sanduíche (iche)
 
