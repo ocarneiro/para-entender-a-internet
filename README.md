@@ -884,3 +884,9 @@ Quem te ensinou? Esse meme se espalhou pela Bahia inteira, e agora já é quase 
 O video é antigo, remonta o ano de 2007, um jovem morador de rua decide jogar um truco no qual aposta seu toba, o pequeno detalhe é que o mesmo não sabia jogar truco, manteve por anos a expressão "Cê chama a ambulança?"
 
 [![Truco valendo o toba](https://pm1.narvii.com/6367/15691778f453028622557030a09c6bdede2998b7_hq.jpg)](https://www.youtube.com/watch?v=yVKk5AmbI0E)
+
+## Vin Diesel brasileiro
+
+"Pânico na Band" preparou uma de suas famosas ciladas para cima de dois sósias do Vin Diesel. Sob o pretexto de uma entrevista sobre o lançamento de "Velozes e Furiosos 8", foi prometido aos gêmeos perdidos 5 minutinhos com o astro em sua passagem pelo Brasil. Para a desgraça de ambos e deleite do público, na verdade um sósia acabou responsável para entrevistar o outro. E demoraram alguns minutos até perceberem que não estavam de frente com o ídolo.... 
+
+[![Vin Diesel brasileiro](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSTApadOUTO8ZjaHEJ4n-hkWItYtsU4agtMw7cgxbDn06j523__mg)](https://www.youtube.com/watch?v=chxLjv8KXa8)
