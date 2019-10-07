@@ -607,3 +607,9 @@ Excelente ministração do pastor sobre como os fiéis devem lavar o cu.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+
+## The Ovo
+
+Em 2019 a conta mais popular, possuindo mais de 10 milhões de seguidores, foi a de um ovo.
+
+[![Egg Gang](https://cdn.vox-cdn.com/thumbor/VD8JI2zquKWDCQuPxlc6Rnhw-1I=/0x0:876x584/1200x800/filters:focal(368x222:508x362)/cdn.vox-cdn.com/uploads/chorus_image/image/62841097/instagram_egg.0.jpg)](https://www.instagram.com/world_record_egg/)
