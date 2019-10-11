@@ -884,3 +884,9 @@ Quem te ensinou? Esse meme se espalhou pela Bahia inteira, e agora já é quase 
 O video é antigo, remonta o ano de 2007, um jovem morador de rua decide jogar um truco no qual aposta seu toba, o pequeno detalhe é que o mesmo não sabia jogar truco, manteve por anos a expressão "Cê chama a ambulança?"
 
 [![Truco valendo o toba](https://pm1.narvii.com/6367/15691778f453028622557030a09c6bdede2998b7_hq.jpg)](https://www.youtube.com/watch?v=yVKk5AmbI0E)
+
+## Meu óculos! Ninguém sai
+
+Vídeo de acidente em lancha bombou na web e virou meme em 2014.
+
+[![Meu óculos] (https://i.ytimg.com/vi/v_l5I73J9gE/maxresdefault.jpg)] (https://www.youtube.com/watch?v=MLyS0qwfXTo)
