@@ -884,3 +884,15 @@ Quem te ensinou? Esse meme se espalhou pela Bahia inteira, e agora já é quase 
 O video é antigo, remonta o ano de 2007, um jovem morador de rua decide jogar um truco no qual aposta seu toba, o pequeno detalhe é que o mesmo não sabia jogar truco, manteve por anos a expressão "Cê chama a ambulança?"
 
 [![Truco valendo o toba](https://pm1.narvii.com/6367/15691778f453028622557030a09c6bdede2998b7_hq.jpg)](https://www.youtube.com/watch?v=yVKk5AmbI0E)
+
+## Meu óculos! Ninguém sai
+
+Vídeo de acidente em lancha bombou na web e virou meme em 2014.
+
+[![Meu óculos] (https://i.ytimg.com/vi/v_l5I73J9gE/maxresdefault.jpg)] (https://www.youtube.com/watch?v=MLyS0qwfXTo)
+
+## Juntos e shallow now 
+
+Na letra original de Shallow, Gaga fala sobre crises e momentos difíceis, com um refrão que termina com "we’re far from the shallow now", que significa "estamos longe do raso agora". Na releitura de Paula Fernandes, a cantora optou por manter uma parte da música em inglês, terminando seu refrão com "Juntos e shallow now", que poderia ser traduzido como "Juntos e rasos agora", o que não faz nenhum sentido.
+
+(https://cdn.dicionariopopular.com/imagens/paulajuntoscapasingle-cke.jpg)
