@@ -7,6 +7,11 @@ Your problems are over! In this repository you will find the missing references 
 
 you can contribute with pull requests!
 
+# Blinking White Guy
+
+Blinking White Guy, also known as Drew Scanlon Reaction, is a GIF of Drew Scanlon, video editor and podcaster at video game website Giant Bomb. In an episode of GiantBomb series "Unprofessional Fridays", he performs a "double take" reaction when Jeff Gerstmann says "farming with my hoe" while playing _Starbound_.
+
+[![Blinking White Guy](https://media.giphy.com/media/l3q2K5jinAlChoCLS/giphy.gif)](https://knowyourmeme.com/memes/blinking-white-guy)
 
 ## Confused Travolta
 

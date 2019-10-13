@@ -9,6 +9,12 @@ Sinta-se à vontade para contribuir com pull requests! [Instruções.](CONTRIBUT
 
 Quem quiser adesivos pode me procurar nos eventos!
 
+## Agostinho Carrara
+
+Agostinho Carrara é um personagem fictício da série brasileira A Grande Família (2001-2014), famoso pelo seu jeito de se vestir, suas frases de efeito, e situações nas quais se envolve para tirar vantagem.
+
+[![Agostinho Carrara](https://i.pinimg.com/originals/a4/4e/3e/a44e3ee9c1e62aff84d05b56799b79ec.jpg)](https://pt.wikipedia.org/wiki/A_Grande_Fam%C3%ADlia_(2001))
+
 ## Sanduíche (iche)
 
 Ruth Lemos, nutricionista, dá dicas sobre uma alimentação saudável-ável que ofereça-ereça condições de uma melhora de vida de vida.
