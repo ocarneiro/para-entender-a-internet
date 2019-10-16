@@ -207,7 +207,7 @@ Marcio canuto, famoso reporter brasileiro, entrevista garotinho que fica nervoso
 
 ## Canarinho Pistola
 
-Essa mudança radical acabou sendo recebida, a princípio, com certa desconfiança pela CBF, que chegou até a formar uma versão mais alegre do personagem para comparecer a ações sociais com crianças e eventos em escolas. Foi a partir da repercussão contra essa possível mudança que o Canarinho começou a ganhar notoriedade e importância para o público, sendo, rapidamente, apelidado de Canarinho “Pistola” 
+Essa mudança radical acabou sendo recebida, a princípio, com certa desconfiança pela CBF, que chegou até a formar uma versão mais alegre do personagem para comparecer a ações sociais com crianças e eventos em escolas. Foi a partir da repercussão contra essa possível mudança que o Canarinho começou a ganhar notoriedade e importância para o público, sendo, rapidamente, apelidado de Canarinho “Pistola”
 
 
 [![Canarinho Pistola](http://www.museudememes.com.br/wp-content/uploads/2018/06/vSCPOrTi_400x400-2.jpg)](https://www.youtube.com/watch?time_continue=62&v=bFalKUC-Wds)
@@ -884,3 +884,6 @@ Quem te ensinou? Esse meme se espalhou pela Bahia inteira, e agora já é quase 
 O video é antigo, remonta o ano de 2007, um jovem morador de rua decide jogar um truco no qual aposta seu toba, o pequeno detalhe é que o mesmo não sabia jogar truco, manteve por anos a expressão "Cê chama a ambulança?"
 
 [![Truco valendo o toba](https://pm1.narvii.com/6367/15691778f453028622557030a09c6bdede2998b7_hq.jpg)](https://www.youtube.com/watch?v=yVKk5AmbI0E)
+
+## Arrombamento de casa, lanchonete, padaria, lan house, salão de cabelo e oficina ?! HAHA
+[![Chocolate Preso] (https://www.google.com/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=2ahUKEwio04-b2KHlAhWYE7kGHaIvDWUQjRx6BAgBEAQ&url=https%3A%2F%2Fwww.youtube.com%2Fwatch%3Fv%3DAPOo--GbY1E&psig=AOvVaw1BQ4oqGPRwDim2W0INdbit&ust=1571346531850612)] (https://www.youtube.com/watch?v=DFkzQ4cIBuU)
