@@ -886,4 +886,7 @@ O video é antigo, remonta o ano de 2007, um jovem morador de rua decide jogar u
 [![Truco valendo o toba](https://pm1.narvii.com/6367/15691778f453028622557030a09c6bdede2998b7_hq.jpg)](https://www.youtube.com/watch?v=yVKk5AmbI0E)
 
 ## Arrombamento de casa, lanchonete, padaria, lan house, salão de cabelo e oficina ?! HAHA
-[![Chocolate Preso] (https://www.google.com/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=2ahUKEwio04-b2KHlAhWYE7kGHaIvDWUQjRx6BAgBEAQ&url=https%3A%2F%2Fwww.youtube.com%2Fwatch%3Fv%3DAPOo--GbY1E&psig=AOvVaw1BQ4oqGPRwDim2W0INdbit&ust=1571346531850612)] (https://www.youtube.com/watch?v=DFkzQ4cIBuU)
+Old, but gold. Esse video nos lembra um famoso ladrão chamado chocolate e suas aventuras. HEHE.
+
+[![Chocolate Preso](https://www.google.com/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=2ahUKEwio04-b2KHlAhWYE7kGHaIvDWUQjRx6BAgBEAQ&url=https%3A%2F%2Fwww.youtube.com%2Fwatch%3Fv%3DAPOo--GbY1E&psig=AOvVaw1BQ4oqGPRwDim2W0INdbit&ust=1571346531850612)]
+(https://www.youtube.com/watch?v=DFkzQ4cIBuU)
