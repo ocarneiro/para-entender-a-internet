@@ -888,5 +888,4 @@ O video é antigo, remonta o ano de 2007, um jovem morador de rua decide jogar u
 ## Arrombamento de casa, lanchonete, padaria, lan house, salão de cabelo e oficina ?! HAHA
 Old, but gold. Esse video nos lembra um famoso ladrão chamado chocolate e suas aventuras. HEHE.
 
-[![Chocolate Preso](https://www.google.com/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=2ahUKEwio04-b2KHlAhWYE7kGHaIvDWUQjRx6BAgBEAQ&url=https%3A%2F%2Fwww.youtube.com%2Fwatch%3Fv%3DAPOo--GbY1E&psig=AOvVaw1BQ4oqGPRwDim2W0INdbit&ust=1571346531850612)]
-(https://www.youtube.com/watch?v=DFkzQ4cIBuU)
+[![Chocolate Preso](https://www.canva.com/design/DADofWu7wpI/WuzQGR5hQHHClOh37RVMcw/view?utm_content=DADofWu7wpI&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink)](https://www.youtube.com/watch?v=DFkzQ4cIBuU)
