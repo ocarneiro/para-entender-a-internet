@@ -887,10 +887,9 @@ O video é antigo, remonta o ano de 2007, um jovem morador de rua decide jogar u
 
 ## Rusbé e Biridin
 
-Rusbé e Biridin são memes que se apropriam da imagem e também de músicas do cantor Michael Jackson.
+Rusbé e Biridin são memes que se apropriam da imagem e também de músicas do cantor Michael Jackson.<br/> 
 
 Rusbé = who is bad (trecho da música Bad)
-
 Biridin = grafia errada da música Billie Jean
 
 O meme geralmente é associado com uma foto bizarra do MJ.
