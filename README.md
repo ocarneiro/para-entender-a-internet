@@ -43,12 +43,6 @@ Ex-BBB, Ana Paula, gritando "OLHA ELAAAA!" durante a edição do BBB.
 
 [![Ana Paula Renault](http://www.museudememes.com.br/wp-content/uploads/2016/07/hqdefault.jpg)](http://www.museudememes.com.br/sermons/olha-ela/)
 
-## O Feiticeiro do Hexa
-
-Um pouco antes do jogo da seleção brasileira contra o México na Copa da Rússia, uma misteriosa figura foi capturada pelas câmeras, e assim nasceu o “Feiticeiro do Hexa”.
-
-[![O Feiticeiro do Hexa](https://www.24horasnews.com.br/imagem/resize/1110/550/imagens/2018/07/04/psicopata-brazuca-que-virou-meme-e-russo-e-torce-para-o-brasil-na-copa.jpg)](https://youtu.be/Idta0fkYQ2U)
-
 ## Tainha, vinho...
 
 Se te convidarem para jantar e tomar um vinho, cuidado, Marilene!
@@ -878,9 +872,3 @@ Julinho da van, do programa Choque de Cultura, ao falar sobre os efeitos especia
 Quem te ensinou? Esse meme se espalhou pela Bahia inteira, e agora já é quase um dito popular.
 
 [![Miseravi](https://i.ytimg.com/vi/iEZk0iifCEk/hqdefault.jpg)](https://www.youtube.com/watch?v=grNlD2GpvyY)
-
-## Truco valendo o toba
-
-O video é antigo, remonta o ano de 2007, um jovem morador de rua decide jogar um truco no qual aposta seu toba, o pequeno detalhe é que o mesmo não sabia jogar truco, manteve por anos a expressão "Cê chama a ambulança?"
-
-[![Truco valendo o toba](https://pm1.narvii.com/6367/15691778f453028622557030a09c6bdede2998b7_hq.jpg)](https://www.youtube.com/watch?v=yVKk5AmbI0E)
