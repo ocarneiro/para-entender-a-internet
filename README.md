@@ -47,7 +47,7 @@ Ex-BBB, Ana Paula, gritando "OLHA ELAAAA!" durante a edição do BBB.
 
 Um pouco antes do jogo da seleção brasileira contra o México na Copa da Rússia, uma misteriosa figura foi capturada pelas câmeras, e assim nasceu o “Feiticeiro do Hexa”.
 
-[![O Feiticeiro do Hexa](https://www.24horasnews.com.br/imagem/resize/1110/550/imagens/2018/07/04/psicopata-brazuca-que-virou-meme-e-russo-e-torce-para-o-brasil-na-copa.jpg)](https://youtu.be/Idta0fkYQ2U)
+[![O Feiticeiro do Hexa](http://www.museudememes.com.br/wp-content/uploads/2018/07/feiticeiro-do-hexa-600x530.jpg)](https://youtu.be/Idta0fkYQ2U)
 
 ## Tainha, vinho...
 
@@ -207,7 +207,7 @@ Marcio canuto, famoso reporter brasileiro, entrevista garotinho que fica nervoso
 
 ## Canarinho Pistola
 
-Essa mudança radical acabou sendo recebida, a princípio, com certa desconfiança pela CBF, que chegou até a formar uma versão mais alegre do personagem para comparecer a ações sociais com crianças e eventos em escolas. Foi a partir da repercussão contra essa possível mudança que o Canarinho começou a ganhar notoriedade e importância para o público, sendo, rapidamente, apelidado de Canarinho “Pistola” 
+Essa mudança radical acabou sendo recebida, a princípio, com certa desconfiança pela CBF, que chegou até a formar uma versão mais alegre do personagem para comparecer a ações sociais com crianças e eventos em escolas. Foi a partir da repercussão contra essa possível mudança que o Canarinho começou a ganhar notoriedade e importância para o público, sendo, rapidamente, apelidado de Canarinho “Pistola”
 
 
 [![Canarinho Pistola](http://www.museudememes.com.br/wp-content/uploads/2018/06/vSCPOrTi_400x400-2.jpg)](https://www.youtube.com/watch?time_continue=62&v=bFalKUC-Wds)
