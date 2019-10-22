@@ -889,4 +889,4 @@ O video é antigo, remonta o ano de 2007, um jovem morador de rua decide jogar u
 
 O joinha mais famoso, feito por esse garoto chamado Brent Rambo em um comercial para a Apple
 
-[![Brent Rambo](https://s2.glbimg.com/dVNxg6dY39ZpUFYPldvkageW5Mg=/850x446/s.glbimg.com/po/tt/f/original/2013/05/06/sem_titulo.jpg)
+[![Brent Rambo](https://s2.glbimg.com/dVNxg6dY39ZpUFYPldvkageW5Mg=/850x446/s.glbimg.com/po/tt/f/original/2013/05/06/sem_titulo.jpg)]
