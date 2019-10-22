@@ -887,4 +887,5 @@ O video é antigo, remonta o ano de 2007, um jovem morador de rua decide jogar u
 
 ## Já chorei bastaaantêêê
 
-[![Tô triste, não tô feliz](https://aminoapps.com/c/otanix/page/blog/quando-meu-personagem-favorito-morre/nlxN_1EcLuMk4rnKMMaG67PqX3D4MwzoNN)](https://www.youtube.com/watch?v=dq30S6JEqRE)
+[![Tô triste, não tô feliz](https://pa1.narvii.com/6350/7c69ad5606e65bf9389906aa03b2e74ad832f46a_hq.gif)](https://www.youtube.com/watch?v=dq30S6JEqRE)
+
