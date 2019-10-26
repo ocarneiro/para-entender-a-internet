@@ -545,7 +545,7 @@ Durante a Copa do Mundo de 2018, Yury Torsky viralizou por ter cara de psicopata
 
 Gabriel dançando de pernas abertas um funk no programa casos de família.
 
-[![Caindo no casos de  família](https://i.ytimg.com/vi/wXM1kcwmJzs/maxresdefault.jpg)](https://www.youtube.com/watch?v=0ec5Y65kZto)
+[![Caindo no casos de  família](http://images.virgula.com.br/2017/06/caindo-no-casos-de-familia.jpg)](https://www.youtube.com/watch?v=0ec5Y65kZto)
 
 ## Kingsize de Niterói
 
