@@ -887,3 +887,10 @@ Quem te ensinou? Esse meme se espalhou pela Bahia inteira, e agora já é quase 
 O video é antigo, remonta o ano de 2007, um jovem morador de rua decide jogar um truco no qual aposta seu toba, o pequeno detalhe é que o mesmo não sabia jogar truco, manteve por anos a expressão "Cê chama a ambulança?"
 
 [![Truco valendo o toba](https://pm1.narvii.com/6367/15691778f453028622557030a09c6bdede2998b7_hq.jpg)](https://www.youtube.com/watch?v=yVKk5AmbI0E)
+
+## A vontade de rir é grande, mas a de chorar é maior...
+
+João Paulo fez um vídeo que viralizou na internet onde destruía sua imagem (mais uma vez)
+
+[![Carai eu sou um merda mermao](https://em.wattpad.com/0cd4ba7cc41cf55dbe5299d0d205e98c1be32d16/68747470733a2f2f73332e616d617a6f6e6177732e636f6d2f776174747061642d6d656469612d736572766963652f53746f7279496d6167652f32745a39594b754d6339486a4d673d3d2d3234312e313466336638616430373463333530663131353130303835323936362e6a7067?s=fit&w=720&h=720)](https://www.youtube.com/watch?v=XhtOyiC_rBE)
+
