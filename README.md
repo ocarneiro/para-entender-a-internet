@@ -268,3 +268,9 @@ Quando a pessoa está em uma situação mas não ta entendendo nada.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+
+## Faz o urro (Shrek) 
+
+Essa épica cena do filme "Shrek para sempre" que virou meme. Faz o urro!
+
+[![Faz o urro] (http://img.youtube.com/vi/vK2SPWme8KI/0.jpg)] (https://youtu.be/6UIvMi5xYXU?t=51)
