@@ -84,11 +84,11 @@ A modelo Adriana Lima foi entrevistada e enviou o beijinho mais famoso da intern
 
 [![Entrevista: Você acredita em simpatia?](https://www.google.com/search?q=meme+voc%C3%AA+acredita+em+simpatia&source=lnms&tbm=isch&sa=X&ved=0ahUKEwjJj-jCr7HeAhXBE5AKHbSjDJkQ_AUIDigB&biw=1366&bih=626#imgrc=dBOfdP0Q6_z8iM:](https://www.youtube.com/watch?v=WD2PZ5AGt58)
 
-## E o bambú?
+## E o bambu?
 
 Silvio Santos às vezes abria o programa para participação de pessoas da platéia. Uma vez uma menina pediu para contar uma piada e a piada era de baixo calão.
 
-[![E o bambú?](http://geekvox.com.br/wp-content/uploads/2015/01/11.gif)](https://www.youtube.com/watch?v=7Nkvvo4RvGw)
+[![E o bambu?](https://i.makeagif.com/media/7-02-2015/Vy-27K.gif)](https://www.youtube.com/watch?v=7Nkvvo4RvGw)
 
 
 ## Bed intruder song
@@ -697,6 +697,13 @@ Excelente ministração do pastor sobre como os fiéis devem lavar o cu.
 Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
+
+
+## Faz o urro (Shrek) 
+
+Essa épica cena do filme "Shrek para sempre" que virou meme. Faz o urro!
+
+[![Faz o urro] (http://img.youtube.com/vi/vK2SPWme8KI/0.jpg)] (https://youtu.be/6UIvMi5xYXU?t=51)
 
 [![Outfit](https://media1.tenor.com/images/856dedf10849fc68f009f0159479152c/tenor.gif?itemid=11944888)](https://www.youtube.com/watch?v=u6b_T0aZnVY)
 
