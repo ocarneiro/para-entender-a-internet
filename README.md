@@ -884,3 +884,15 @@ Quem te ensinou? Esse meme se espalhou pela Bahia inteira, e agora já é quase 
 O video é antigo, remonta o ano de 2007, um jovem morador de rua decide jogar um truco no qual aposta seu toba, o pequeno detalhe é que o mesmo não sabia jogar truco, manteve por anos a expressão "Cê chama a ambulança?"
 
 [![Truco valendo o toba](https://pm1.narvii.com/6367/15691778f453028622557030a09c6bdede2998b7_hq.jpg)](https://www.youtube.com/watch?v=yVKk5AmbI0E)
+
+## G A L O D E K A L S A
+
+É um galo, so que ele ta usando uma calça.
+
+[![Galo de Kalsa](https://pbs.twimg.com/profile_images/1141149889109397505/fIukSh0g_400x400.jpg)](https://www.youtube.com/watch?v=CcaIyZDTRFs)
+
+## PEGA A TAMPA JC 
+
+Os personagens JC e Rogerin participam dessa trollagem épica!
+
+[![UÉ JC PEGA A TAMPA AE](https://static.fanfiction.com.br/userfiles/E/6/E/1/capa_429190_1452213845.jpg)](https://www.youtube.com/watch?v=8yBP_u9Lp6U)
