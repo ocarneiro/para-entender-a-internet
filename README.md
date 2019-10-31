@@ -11,16 +11,21 @@ Quem quiser adesivos pode me procurar nos eventos!
 
 ## Sanduíche (iche)
 
-Ruth Lemos, nutricionista, dá dicas sobre uma alimentação saudável-ável que ofereça-ereça condições de uma melhora de vida de vida. 
+Ruth Lemos, nutricionista, dá dicas sobre uma alimentação saudável-ável que ofereça-ereça condições de uma melhora de vida de vida.
 
 [![Sanduicheiche](https://vignette.wikia.nocookie.net/meme/images/1/14/Ruth_Lemos.png/revision/latest?cb=20151016223957&path-prefix=pt-br)](https://www.youtube.com/watch?v=pmn-dbBpglU)
-
 
 ## BIRL (Bambam bodybuilder)
 
 Bambam, participante do Big Brother Brasil (BBB) edição 1 de 2002, fez um vídeo malhando e falando muitos palavrões:
 
 [![BIRL](https://img.buzzfeed.com/buzzfeed-static/static/2016-05/31/12/asset/buzzfeed-prod-web14/anigif_sub-buzz-4076-1464711500-10.gif)](http://www.youtube.com/watch?v=zwvsa7DzzHY)
+
+## Trago a vocês e entrego Pororoca
+
+Richard correndo das ondas da pororoca no estado do Amapá:
+
+[![Pororoca](https://cdn.naosalvo.com.br/2016/05/ri.jpg)](https://www.youtube.com/watch?v=APURy5g6yNY)
 
 ## Fazer humanas e viver da arte, fazer miçangas
 
@@ -32,6 +37,17 @@ Um tempo depois ela apareceu de novo na TV:
 
 [![Milena2](http://img.youtube.com/vi/ObBNoD7IAng/0.jpg)](http://www.youtube.com/watch?v=ObBNoD7IAng)
 
+## Ana Paula Renault
+
+Ex-BBB, Ana Paula, gritando "OLHA ELAAAA!" durante a edição do BBB.
+
+[![Ana Paula Renault](http://www.museudememes.com.br/wp-content/uploads/2016/07/hqdefault.jpg)](http://www.museudememes.com.br/sermons/olha-ela/)
+
+## O Feiticeiro do Hexa
+
+Um pouco antes do jogo da seleção brasileira contra o México na Copa da Rússia, uma misteriosa figura foi capturada pelas câmeras, e assim nasceu o “Feiticeiro do Hexa”.
+
+[![O Feiticeiro do Hexa](https://www.24horasnews.com.br/imagem/resize/1110/550/imagens/2018/07/04/psicopata-brazuca-que-virou-meme-e-russo-e-torce-para-o-brasil-na-copa.jpg)](https://youtu.be/Idta0fkYQ2U)
 
 ## Tainha, vinho...
 
@@ -39,23 +55,23 @@ Se te convidarem para jantar e tomar um vinho, cuidado, Marilene!
 
 [![Tainha](https://thumbs.gfycat.com/BowedWaterloggedGuanaco-max-1mb.gif)](http://www.youtube.com/watch?v=z7-ZYXpJ_EU)
 
-
 ## Serjão Berranteiro, matador de onça
 
 [![Onça](https://i.makeagif.com/media/2-02-2017/YyQWmh.gif)](http://www.youtube.com/watch?v=OjYRjpgdLeI)
 
-
 ## O Rei do Elogio
 
-
 [![O Rei do Elogio](http://img.youtube.com/vi/6rrCGsecJrk/0.jpg)](https://www.youtube.com/watch?v=6rrCGsecJrk)
-
-
 
 ## Melhor grupo do Brasil - Carreta Furacão
 
 [![Siga_em_Frente](https://www.fatosdesconhecidos.com.br/wp-content/uploads/2016/04/2cncoxk.gif)](https://www.youtube.com/watch?v=tmJ0tzAZ4aM)
 
+## Adriana Lima
+
+A modelo Adriana Lima foi entrevistada e enviou o beijinho mais famoso da internet
+
+[![Adriana Lima](http://www.museudememes.com.br/wp-content/uploads/2018/04/CxkW1JxW8AAn9f9-960x640_c.jpg)](https://youtu.be/Y0tad4RAay4)
 
 ## Já acabou, Jéssica?
 
@@ -63,6 +79,10 @@ Se te convidarem para jantar e tomar um vinho, cuidado, Marilene!
 
 ## Sou Faraó
 [![Sou Faraó?](https://i.makeagif.com/media/5-03-2015/Uj2PP0.gif)](https://www.youtube.com/watch?v=n0-HLCrRGHo)
+
+## Você acredita em simpatia?
+
+[![Entrevista: Você acredita em simpatia?](https://www.google.com/search?q=meme+voc%C3%AA+acredita+em+simpatia&source=lnms&tbm=isch&sa=X&ved=0ahUKEwjJj-jCr7HeAhXBE5AKHbSjDJkQ_AUIDigB&biw=1366&bih=626#imgrc=dBOfdP0Q6_z8iM:](https://www.youtube.com/watch?v=WD2PZ5AGt58)
 
 ## E o bambú?
 
@@ -75,20 +95,17 @@ Silvio Santos às vezes abria o programa para participação de pessoas da plat�
 
 [![BedIntruder](https://thumbs.gfycat.com/EntireUnhappyCondor-small.gif)](//www.youtube.com/watch?v=hMtZfW2z9dw&t=17s)
 
-
 ## Gretchen rainha dos memes
 
 Conheça Gretchen, Rainha dos memes da internet brasileira
 
 [![Gretchen rainha dos memes](https://faesadigital.files.wordpress.com/2017/07/giphy4.gif?w=1200)](https://www.youtube.com/watch?v=QLOcGaqDByw)
 
-
 ## Tava ruim, agora parece que piorou
 
 Dava pra melhor com certeza, quer dizer que ia mudar melhor, já tava bom, disse que ia mudar pra melhor, não tava muito bom, tava meio ruim também, tava ruim, agora parece que piorou.﻿
 
 [![Tava ruim, agora parece que piorou](https://i.makeagif.com/media/5-20-2015/41-jmq.gif)](//www.youtube.com/watch?v=VX3lz5ph8A0)
-
 
 ## Omae wa mou shindeiru! Nani??
 
@@ -120,6 +137,12 @@ Será mesmo que você conhece cada passo desse chão? Seriado famoso nos anos 20
 e morreu!
 
 [![e morreu!](http://pa1.narvii.com/6532/f5684277ae6a9fadaccdcddd68ace49cd8516a32_hq.gif)](https://www.youtube.com/watch?v=kMbcgxUeYkc)
+
+## O feiticeiro do hexa
+
+Uma misteriosa figura foi capturada pelas imagens, permanecendo no ar por alguns segundos. Assim, o “Torcedor Misterioso”, o “Psicopata da Copa” ou o “Feiticeiro do Hexa” tornou-se um fenômeno imediato
+
+[![O feiticeiro do hexa](http://www.museudememes.com.br/wp-content/uploads/2018/07/feiticeiro-do-hexa-600x530.jpg)](https://www.youtube.com/watch?time_continue=1&v=Idta0fkYQ2U)
 
 
 ## Melody e sua amiga diva do falsete mostrando cultura para o Brasil
@@ -182,6 +205,13 @@ Marcio canuto, famoso reporter brasileiro, entrevista garotinho que fica nervoso
 
 [![## Cachorro? Que cachorro o que! Não sou cachorro não](http://img.youtube.com/vi/YvwEdt5CBQo/0.jpg)](https://www.youtube.com/watch?v=YvwEdt5CBQo)
 
+## Canarinho Pistola
+
+Essa mudança radical acabou sendo recebida, a princípio, com certa desconfiança pela CBF, que chegou até a formar uma versão mais alegre do personagem para comparecer a ações sociais com crianças e eventos em escolas. Foi a partir da repercussão contra essa possível mudança que o Canarinho começou a ganhar notoriedade e importância para o público, sendo, rapidamente, apelidado de Canarinho “Pistola” 
+
+
+[![Canarinho Pistola](http://www.museudememes.com.br/wp-content/uploads/2018/06/vSCPOrTi_400x400-2.jpg)](https://www.youtube.com/watch?time_continue=62&v=bFalKUC-Wds)
+
 
 ## Vanusa canta o hino nacional
 
@@ -210,6 +240,10 @@ A menina Isabela, revoltada ao saber que seu pai havia fechado a porta cobra exp
 
 [![QUERO CAFÉ](http://img.youtube.com/vi/VxRpkfcXEpA/0.jpg)](https://www.youtube.com/watch?v=VxRpkfcXEpA)
 
+## Quem não gosta, gosta, quem não gosta curte!
+
+[![Quem não gosta gosta, quem não gosta curte](https://www.google.com/search?q=quem+gosta+gosta+quem+n%C3%A3o+gosta+curte&source=lnms&tbm=isch&sa=X&ved=0ahUKEwjW6MDcp7HeAhWFS5AKHTaCDcAQ_AUIDigB&biw=1366&bih=626#imgrc=42O4VK0IeeyO0M:)](https://www.youtube.com/watch?v=6SfBPAKec88)
+
 ## Padre Quemedo e o filho do Capeta
 
 Hermes e Renato é provavelmente o maior concentrador de falas e expressões de cultura pop da geração nascida nos anos 90. Nesse vídeo, o Padre Quemedo questiona a veracidade de um suposto Filho do Capeta
@@ -219,6 +253,10 @@ Hermes e Renato é provavelmente o maior concentrador de falas e expressões de 
 ## Morre diabo!
 
 [![Morre diabo](http://img.youtube.com/vi/dAuE92NvuXU/0.jpg)](https://www.youtube.com/watch?v=dAuE92NvuXU)
+
+## Cê foi inocente agora
+
+[![Choque de Cultura: Cê foi inocente agora](https://cdn.dicionariopopular.com/imagens/ce-foi-inocente-agora-cke.jpg)](https://www.youtube.com/watch?v=4u1w1UnqI0Y)
 
 ## Jeremias muito louco!
 
@@ -360,7 +398,7 @@ ZA WARUDO!, ou THE WORLD! É um golpe criado pelo vampiro Dio Brando que possui 
 
 ## Yes - Roundabout / To Be Continued...
 
-Meme baseado no cliffhanger usado ao fim de episodios do anime Jojo’s Bizarre Adventure. 
+Meme baseado no cliffhanger usado ao fim de episodios do anime Jojo’s Bizarre Adventure.
 
 [![To Be Continued](https://i.makeagif.com/media/5-18-2016/SyNrOL.gif)](https://www.youtube.com/watch?v=4EMJl4sy)
 
@@ -535,23 +573,17 @@ Você tá de boas no seu LoLzin quando...
 
 [![EOQ](https://i.ytimg.com/vi/MaW4fY8ScYw/hqdefault.jpg)](https://youtu.be/MaW4fY8ScYw)
 
+## Ronaldo brilha muito no curinthia
+
+Zina muito louco, topando tudo e soltando o lendário "rolando brilha muito no curinthia"
+
+[![topo pq não?](https://i.ytimg.com/vi/rGvt-5tj9EU/hqdefault.jpg)](https://www.youtube.com/watch?v=rGvt-5tj9EU)
+
 ## Sou eu! O tiririca!!
 
 Quando você está esperando que o Goku chegue e salve o planeta terra, mas é só Tiririca mesmo.
 
 [![Tiririca chega e ninguém espera por isso](https://uploaddeimagens.com.br/images/001/680/500/original/tiririca.PNG?1540090894)](https://youtu.be/kvgFFbbvBPs)
-
-## Nutella
-
-A pessoa nutella gosta de coisas "fancy" e gosta de se sentir popular/atualizado. Pode ser aplicado em varios contextos.
-
-![Nutella](https://target.scene7.com/is/image/Target/GUEST_8a9eb8dd-7070-478e-85c2-bc53deb02227?wid=488&hei=488&fmt=pjpeg)
-
-## Raiz
-
-A pessoa raiz gosta de coisas feitas de forma "tradicional". Pode ser aplicado em vários contextos.
-
-![Raiz](https://www.saludcasera.com/wp-content/uploads/2016/06/raiz-de-ashwagandha.jpg)
 
 ## Você é o bichão mesmo, hein doido?
 
@@ -666,11 +698,192 @@ Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 [![Eu sou rolezeira](http://img.youtube.com/vi/pKSlxjJmDPg/0.jpg)](https://www.youtube.com/watch?v=pKSlxjJmDPg&t)
 
+[![Outfit](https://media1.tenor.com/images/856dedf10849fc68f009f0159479152c/tenor.gif?itemid=11944888)](https://www.youtube.com/watch?v=u6b_T0aZnVY)
+
+## Nutella
+
+A pessoa nutella gosta de coisas "fancy" e gosta de se sentir popular/atualizado. Pode ser aplicado em varios contextos.
+
+![Nutella](https://target.scene7.com/is/image/Target/GUEST_8a9eb8dd-7070-478e-85c2-bc53deb02227?wid=488&hei=488&fmt=pjpeg)
+
+## Raiz
+
+A pessoa raiz gosta de coisas feitas de forma "tradicional". Pode ser aplicado em vários contextos.
+
+![Raiz](https://www.saludcasera.com/wp-content/uploads/2016/06/raiz-de-ashwagandha.jpg)
+
+## Absolutely Barbaric
+
+Esse meme deve ser utilizado quando alguem faz algo totalmente fora do "normal" ou do "padrao". Essa pessoa eh dita uma barbara! Exemplo: essa imagem poderia ser enviada para alguem que coloca o feijao antes do arroz na montagem do prato.
+
+![Barbaric](https://pics.me.me/absolutely-barbaric-27770087.png)
+
+## Moon Moon
+
+Um husk pode ser conhecido como "Moon Moon" na internet. Ainda mais quando ele faz coisas estranhas.
+
+![MoonMoon](https://i.ytimg.com/vi/Bc658p8pmL4/hqdefault.jpg)
+
+## I did it! (Eu consegui!)
+
+Essa coisa fofa viralizou na internet como o simbolo de pura vitoria! Muito usado quando conseguimos atingir ou ate ultrapassar nossas metas.
+
+![BabyMeme](https://hips.hearstapps.com/cosmouk.cdnds.net/15/31/1438173668-cute-success-kid.jpg?crop=1xw:1.0xh;center,top&resize=480:*)
+
+## Poker Face
+
+Classico dos classicos. Preciso mesmo explicar o poker face? Quando voce nao tiver ideia do que fazer: Poker face '-'
+
+![Pokerface](https://i.kym-cdn.com/entries/icons/original/000/003/193/teddy-bear-poker-face.jpg)
+
+## Lindomar, o Sub-zero Brasileiro
+
+Quando a babá malvada que agredia crianças saiu na rua, nosso herói entrou em ação.
+
+[![LINDOMAR](http://www.museudememes.com.br/wp-content/uploads/2017/03/lindomar-sub.jpg)](https://www.youtube.com/watch?v=OM4mw1q5PP4)
+
+## Tô cagado de fome
+
+[![To cagado de fome](http://www.videosnowhats.com/painel/files/34D90.jpg)](https://www.youtube.com/watch?v=MM4U4RH2s64)
+
+## Irineu, você não sabe nem eu!
+
+[![IRINEU](https://i.ytimg.com/vi/1vFk3u0pac4/maxresdefault.jpg)](https://www.youtube.com/watch?v=Hebw7Mw_WAg)
+
+## Grávida de Taubaté
+
+[![gravida](https://observatoriodatelevisao.bol.uol.com.br/wp-content/uploads/2018/03/edu-guedes-e-a-gravida-de-taubate.jpg)](https://www.youtube.com/watch?v=ch7_m_IT_vY)
+
+## Puta falta de sacanagem
+
+[![falta de sacanagem](http://1.bp.blogspot.com/_OxHsI7USKdE/S_SLc4eX_jI/AAAAAAAAAXw/M6B84Bk4Rpw/s1600/falta+de+sacanagem.jpg)](https://www.youtube.com/watch?v=d_L_yoI7buE)
+
+## Vou xingar muito no twitter
+
+[![Xingar no twitter](https://pbs.twimg.com/media/CgHZNacXIAAwqNU.jpg)](https://youtu.be/yRzrhzeusvU?t=107)
+
 ## Gordinho do Outfit
 
 Gordinho mostra todo valor do seu outfit
 
 [![Outfit](https://media1.tenor.com/images/856dedf10849fc68f009f0159479152c/tenor.gif?itemid=11944888)](https://www.youtube.com/watch?v=u6b_T0aZnVY)
+
+## O grande poeta Galo Cego
+
+Nada haver, irmão!
+
+[![Galo Cego](https://media1.tenor.com/images/66c0d987df840dd40a4852a8d6913b7e/tenor.gif)](https://www.youtube.com/watch?v=hAx4Lql_-VI)
+
+## Vinicius Jr cantando pagode
+
+Ela é uma boa menina... Vamos pular....
+
+[![Vinicius Jr](https://www.torcedores.com/content/uploads/2018/10/Vinicius-Jr1.jpg)](https://youtu.be/kv96Y0kS7Ns)
+[![EOQ](https://i.ytimg.com/vi/MaW4fY8ScYw/hqdefault.jpg)](https://youtu.be/MaW4fY8ScYw)
+
+## Meu pai é o Thor
+
+Vergonha alhei de ter um pai assim
+
+[![ThorFather](http://cdn.naosalvo.com.br/2011/06/filmethor2.jpg)](https://youtu.be/EdCBVhrvDjE)
+
+## Dilma fala bem
+
+Galera, eu votei nela, mas tenho que admitir. Ela é uma comédia.
+
+[![Dilma](https://cdn.pensador.com/img/frase/di/lm/dilma_rousseff_nao_acho_que_quem_ganhar_ou_quem_perder_lqlgvpd.jpg)](https://www.youtube.com/watch?v=rnGcJCxJr1U)
+
+## Seu Lunga, ícone do Nordeste
+
+Um cara que tem respostas gentis para tudo.
+
+[![SeuLunga](https://images2.memedroid.com/images/UPLOADED55/522dfc183a9d6.jpeg)](https://www.youtube.com/watch?v=rUlcLG4zhCM)
+
+## Chapolin Sincero
+
+Grandes pensamentos da sabedoria mexicana do nosso eterno herói
+
+![ChapoSinc](http://www.museudememes.com.br/wp-content/uploads/2015/01/chapolim.jpg)
+
+## Chapolin Sincero contra-ataca
+
+Novamente, pérolas do pensamento chapoliônico: conselhos para fofinhos.
+
+![ChapoSinc](http://www.joaoalberto.com/wp-content/uploads/2017/01/31/chapolin1.jpg)
+
+## Zerar a NetFlix
+
+Zerar a NetFlix
+
+[![ZerarNetFlix](https://www.altoastral.com.br/wp-content/uploads/2016/08/gretchen.gif)]
+
+## Fábio Assunção chama o sargento
+
+Fábio Assunção, muito chapado e preso na viatura, manda desesperadamente chamar o sargento.
+
+[![Chama o sargento](https://pbs.twimg.com/media/DDGUvMfXsAAxMAU.jpg)](https://www.youtube.com/watch?v=AFcBkceZYu8)
+
+## He-Man: "HEYEAYEA" Live-Action
+
+"HEYYEYAAEYAAAEYAEYAA" é o título não oficial de um vídeo publicado em 2005, em que o personagem de super-heróis fictício He-Man canta uma versão de "Whats up" do "4 Non Blondes" lançada em 1992.
+
+Desde que estourou em maio de 2005, o vídeo gerou centenas de remixes, memes e paródias, dentre eles o "Fabulous Secret Powers Live Action" uma versão live action feita por "Tommy Gnall" em 2014.
+
+[![He-Man: "HEYEAYEA" Live-Action vs. Original](https://i.makeagif.com/media/9-04-2015/YQiIra.gif)](https://www.youtube.com/watch?v=0M9cypF0Pyk)
+
+## Eduardo Jorge, o meme dos debates
+
+Yes, we Quero!
+
+![Yes, we Quero!](http://www.latinpopbrasil.com.br/wp-content/uploads/2015/07/eduardo-jorge-quero.jpg)
+
+## Eduardo Jorge, o spock brasileiro
+
+A cena foi rápida e o gesto discreto. Mesmo assim, os fãs da saga Jornada nas Estrelas não perderam de vista a referência e logo entenderam – e viralizaram nas redes sociais – uma ação do canditato a vice-presidente da República, Eduardo Jorge (PV), da chapa da candidata Marina Silva (Rede), em plena propaganda eleitoral. É que Eduardo Jorge replicou, em meio a um discurso de Marina sobre uma das propostas das chapa, o mundialmente conhecido símbolo do capitão Spock, personagem clássico da saga. O gesto é feito aos 5 segundos do vídeo de apenas 21 segundos de duração.
+
+[![Spock Jorge](https://statig2.akamaized.net/bancodeimagens/3o/sv/ey/3osvey0lz19ohpddrtquiw3l8.jpg)](https://www.youtube.com/watch?v=qT8-UX6kxH8)
+
+## Maurílio "Boa noite amantes da sétima arte"
+
+Maurílio dos anjos, do programa Choque de Cultura, usa essa frase como padrão para cumprimentar o pessoal que assiste o programa.
+
+![Boa noite!](https://cdn.dicionariopopular.com/imagens/boa-noite-amantes-da-setima-arte-cke.jpg)
+
+## Show!
+
+Cena onde Renan, do programa Choque de Cultura, diz "Show!". O programa Choque de Cultura fala sobre cinema de uma maneira diferente e divertida.
+
+![Show!](https://i.gifer.com/JNv.gif)
+
+## Renan "Pode mandar um recado?" - Choque de cultura
+
+Renan, do Choque de Cultura, pergunta se pode mandar um recado ao final do programa.
+
+![Recado](https://media1.tenor.com/images/bf243885a622aa91b3f118ae529c0faa/tenor.gif?itemid=10751853)
+
+## Rogerinho do Ingá - Achou errado, OTÁRIO!
+
+Frase padrão de abertura do programa Choque de Cultura, onde Rogerinho do Ingá diz algo como "Você achou que a gente não ia falar sobre série de criança? Achou errado, OTÁRIO!"
+
+![Otário](https://cdn-images-1.medium.com/max/1600/1*yn8BJy8tHQ2yQm4htdz2ZQ.gif)
+
+## Julinho da van - "É tudo computador essa porra!"
+
+Julinho da van, do programa Choque de Cultura, ao falar sobre os efeitos especiais de um filme soltou essa frase. Agora é usada para tudo que parece fake e feito por computador.
+
+![Tudo computador](https://media1.tenor.com/images/f0a24a5cf1be3288d1c4f18bba32626e/tenor.gif?itemid&)
+
+## Acertô, Miseravi!!
+
+Quem te ensinou? Esse meme se espalhou pela Bahia inteira, e agora já é quase um dito popular.
+
+[![Miseravi](https://i.ytimg.com/vi/iEZk0iifCEk/hqdefault.jpg)](https://www.youtube.com/watch?v=grNlD2GpvyY)
+
+## Truco valendo o toba
+
+O video é antigo, remonta o ano de 2007, um jovem morador de rua decide jogar um truco no qual aposta seu toba, o pequeno detalhe é que o mesmo não sabia jogar truco, manteve por anos a expressão "Cê chama a ambulança?"
+
+[![Truco valendo o toba](https://pm1.narvii.com/6367/15691778f453028622557030a09c6bdede2998b7_hq.jpg)](https://www.youtube.com/watch?v=yVKk5AmbI0E)
 
 ## Caneta Azul
 
