@@ -671,3 +671,9 @@ Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 Gordinho mostra todo valor do seu outfit
 
 [![Outfit](https://media1.tenor.com/images/856dedf10849fc68f009f0159479152c/tenor.gif?itemid=11944888)](https://www.youtube.com/watch?v=u6b_T0aZnVY)
+
+## Caneta Azul
+
+Manoel Gomes, maranhense da cidade de Balsas, criou um hit que estourou em 2019
+
+[![Caneta Azul](https://img.youtube.com/vi/BsIXE-0O8IY/sddefault.jpg)](https://www.youtube.com/watch?v=BsIXE-0O8IY)
