@@ -82,7 +82,10 @@ A modelo Adriana Lima foi entrevistada e enviou o beijinho mais famoso da intern
 
 ## Você acredita em simpatia?
 
-[![Entrevista: Você acredita em simpatia?](https://www.google.com/search?q=meme+voc%C3%AA+acredita+em+simpatia&source=lnms&tbm=isch&sa=X&ved=0ahUKEwjJj-jCr7HeAhXBE5AKHbSjDJkQ_AUIDigB&biw=1366&bih=626#imgrc=dBOfdP0Q6_z8iM:](https://www.youtube.com/watch?v=WD2PZ5AGt58)
+A Flávia foi entrevistada e questionada se ela acreditava em simpatia. Sem entender a pergunta, a resposta de Flávia
+foi uma viagem pela metafísica e umas complexidades que ninguém entendeu
+
+[![Entrevista: Você acredita em simpatia?](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTNnEeq1SPhuTAoNpYVCTCOMVjQBwtfovQfvI05FZNON8nwcBg-Qw&s)](https://www.youtube.com/watch?v=WD2PZ5AGt58)
 
 ## E o bambú?
 
