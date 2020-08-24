@@ -887,6 +887,6 @@ O video é antigo, remonta o ano de 2007, um jovem morador de rua decide jogar u
 
 ## Hoje é dia de rock bebê
 
-Frase icônica dita pela ... no rock in rio durante uma entrevista sem pé nem cabeça.
+Frase icônica dita pela Christiane Torloni no rock in rio durante uma entrevista sem pé nem cabeça.
 
 [![dia-de-rock](https://www.museudememes.com.br/wp-content/uploads/2015/09/rock.gif)](https://www.youtube.com/watch?v=plbvop6J6hQ)
