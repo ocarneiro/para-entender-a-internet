@@ -889,4 +889,4 @@ O video é antigo, remonta o ano de 2007, um jovem morador de rua decide jogar u
 
 O estado de espírito do brasileiro. "Tô triste, eu não tô feliz, chorei bastante já". 
 
-[![Bêbada de Curitiba](https://instafamosos.ig.com.br/wp-content/uploads/2020/07/a-14.jpg)](https://www.youtube.com/watch?v=56NDbZl9yMU)
+[![Bêbada de Curitiba](https://i.pinimg.com/736x/1b/4c/e6/1b4ce6af09ce4b5e4d654a14a4f9009f.jpg)](https://www.youtube.com/watch?v=56NDbZl9yMU)
