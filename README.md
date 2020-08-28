@@ -885,7 +885,6 @@ O video é antigo, remonta o ano de 2007, um jovem morador de rua decide jogar u
 
 [![Truco valendo o toba](https://pm1.narvii.com/6367/15691778f453028622557030a09c6bdede2998b7_hq.jpg)](https://www.youtube.com/watch?v=yVKk5AmbI0E)
 
-
 ## Hoje é dia de rock bebê
 
 Frase icônica dita pela Christiane Torloni no rock in rio durante uma entrevista sem pé nem cabeça.
@@ -898,3 +897,8 @@ O estado de espírito do brasileiro. "Tô triste, eu não tô feliz, chorei bast
 
 [![Bêbada de Curitiba](https://i.pinimg.com/736x/1b/4c/e6/1b4ce6af09ce4b5e4d654a14a4f9009f.jpg)](https://www.youtube.com/watch?v=56NDbZl9yMU)
 
+## Mas cê ta brava?
+
+Não se pergunta a quem está bravo se a pessoa está brava! "Mas cê ta brava?"
+
+[![Mas cê ta brava?](https://pbs.twimg.com/media/D3QK-NeW0Agm_yB.png)](https://www.youtube.com/watch?v=UNNuUSkIiQE)
