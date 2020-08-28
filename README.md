@@ -884,3 +884,9 @@ Quem te ensinou? Esse meme se espalhou pela Bahia inteira, e agora já é quase 
 O video é antigo, remonta o ano de 2007, um jovem morador de rua decide jogar um truco no qual aposta seu toba, o pequeno detalhe é que o mesmo não sabia jogar truco, manteve por anos a expressão "Cê chama a ambulança?"
 
 [![Truco valendo o toba](https://pm1.narvii.com/6367/15691778f453028622557030a09c6bdede2998b7_hq.jpg)](https://www.youtube.com/watch?v=yVKk5AmbI0E)
+
+## Bêbada de Curitiba (in memoriam)
+
+O estado de espírito do brasileiro. "Tô triste, eu não tô feliz, chorei bastante já". 
+
+[![Bêbada de Curitiba](https://i.pinimg.com/736x/1b/4c/e6/1b4ce6af09ce4b5e4d654a14a4f9009f.jpg)](https://www.youtube.com/watch?v=56NDbZl9yMU)
