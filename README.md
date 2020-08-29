@@ -902,3 +902,12 @@ O estado de espírito do brasileiro. "Tô triste, eu não tô feliz, chorei bast
 Não se pergunta a quem está bravo se a pessoa está brava! "Mas cê ta brava?"
 
 [![Mas cê ta brava?](https://pbs.twimg.com/media/D3QK-NeW0Agm_yB.png)](https://www.youtube.com/watch?v=UNNuUSkIiQE)
+
+## DJ para o som!
+
+Pabllo Vittar explica (com frases icônicas) como ela lida com brigas em seus shows. 
+"A gente quer se divertir!"
+
+[![DJ para o som](https://i.ibb.co/Vphxn5D/Meme-pabllo.png)](https://www.youtube.com/watch?v=cimiVGZqHZ8) 
+
+
