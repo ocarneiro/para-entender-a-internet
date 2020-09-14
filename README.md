@@ -911,9 +911,10 @@ Pabllo Vittar explica (com frases icônicas) como ela lida com brigas em seus sh
 [![DJ para o som](https://i.ibb.co/Vphxn5D/Meme-pabllo.png)](https://www.youtube.com/watch?v=cimiVGZqHZ8) 
 
 
-## O presidente atleta...
+## Bolsonaro, o presidente atleta...
 
-Bozo disse que não ficaria doente pois tem histórico de atleta mostra todo seu potencial nesses exercícios de flexões de solo. 
-Pombo comendo pipoca.
+Bozo, que disse que não ficaria doente pois tem histórico de atleta, mostra todo seu potencial nesses exercícios de flexões de solo.
+ 
+Tal qual um pombo comendo pipoca.
 
 [![1, 2, 3](https://media1.tenor.com/images/7fbba733ef6b3be90953818e4b266a44/tenor.gif?itemid=9851695)](https://www.youtube.com/watch?v=xN64YbeVfng) 
