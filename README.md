@@ -925,3 +925,12 @@ Tal qual um pombo comendo pipoca.
 Nada como forjar um bilhete para poder faltar às aulas, né? 
 
 ![É verdade esse bilete](https://imagens.canaltech.com.br/230945.463643-Os-melhores-memes-e-virais-do-ano.jpg)
+
+
+## Will You Shut Up Man?
+
+Em um debate antes das eleicões de 2020 nos U.S.A, Joe Biden pergunta ao concorrente, Donald Trump se ele irá calar a boca:
+
+Bambam, participante do Big Brother Brasil (BBB) edição 1 de 2002, fez um vídeo malhando e falando muitos palavrões:
+
+[![WillYouShutUpMan](https://tenor.com/view/shut-up-man-will-you-gif-18636332)](https://www.youtube.com/watch?v=vU0fx8d2FiY)
