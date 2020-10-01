@@ -925,3 +925,10 @@ Tal qual um pombo comendo pipoca.
 Nada como forjar um bilhete para poder faltar às aulas, né? 
 
 ![É verdade esse bilete](https://imagens.canaltech.com.br/230945.463643-Os-melhores-memes-e-virais-do-ano.jpg)
+
+
+## Bronn's - I'd fuck her (Game of Thrones)
+
+Bronn é um personagem de Game of Thrones que passa o seriado inteiro tentando se casar, até esse momento em que ele conversa com Podrik sobre mulheres e fala "I'd fuck her" que significa "Eu dormiria com ela". Desse momento em diante, o rosto de Bronn é utilizado sempre que alguém precisa expressar algo como "Eu dormiria com ela":
+
+[![Bronn's](https://media1.tenor.com/images/770110f77e1886f6ba69e6ef4ff026cd/tenor.gif)](https://www.youtube.com/watch?v=JtZWMOXVNro)
