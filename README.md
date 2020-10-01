@@ -918,3 +918,10 @@ Bozo, que disse que não ficaria doente pois tem histórico de atleta, mostra to
 Tal qual um pombo comendo pipoca.
 
 [![1, 2, 3](https://media1.tenor.com/images/7fbba733ef6b3be90953818e4b266a44/tenor.gif?itemid=9851695)](https://www.youtube.com/watch?v=xN64YbeVfng) 
+
+
+## É verdade esse bilete
+
+Nada como forjar um bilhete para poder faltar às aulas, né? 
+
+![É verdade esse bilete](https://imagens.canaltech.com.br/230945.463643-Os-melhores-memes-e-virais-do-ano.jpg)
