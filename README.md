@@ -925,3 +925,9 @@ Tal qual um pombo comendo pipoca.
 Nada como forjar um bilhete para poder faltar às aulas, né? 
 
 ![É verdade esse bilete](https://imagens.canaltech.com.br/230945.463643-Os-melhores-memes-e-virais-do-ano.jpg)
+
+## Sou obrigada a ter empatia?
+
+Jesus disse para amar a todos, mas, de acordo com Lolly Vômito do canal [lolly para meninas](https://www.youtube.com/channel/UCqWB7SKK4PuTuayj9Ny_OgA), é dificil ter empatia com alguns
+
+[![Sou obrigada a ter empatia?](https://pbs.twimg.com/media/EMBRa5MWsAA8jRK.jpg)](https://www.youtube.com/watch?v=9cOlOLLXVdQ&app=desktop)
