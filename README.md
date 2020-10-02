@@ -925,3 +925,11 @@ Tal qual um pombo comendo pipoca.
 Nada como forjar um bilhete para poder faltar às aulas, né? 
 
 ![É verdade esse bilete](https://imagens.canaltech.com.br/230945.463643-Os-melhores-memes-e-virais-do-ano.jpg)
+
+
+## Para de falar que tu é minha namorrrrrrr
+
+A revolução criada por DJ Azeitona
+
+[![Para de falar que tu é minha namorrrrrrr](https://i.ytimg.com/vi/ua9p7hsio5Y/hqdefault.jpg)](https://www.youtube.com/watch?v=ua9p7hsio5Y)
+
