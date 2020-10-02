@@ -925,3 +925,15 @@ Tal qual um pombo comendo pipoca.
 Nada como forjar um bilhete para poder faltar às aulas, né? 
 
 ![É verdade esse bilete](https://imagens.canaltech.com.br/230945.463643-Os-melhores-memes-e-virais-do-ano.jpg)
+
+
+## Meu nome é Julia!
+
+![Meu nome é Julia](https://i.makeagif.com/media/10-15-2015/rjenuH.gif)
+
+E não pode faltar a performance memorável de Dark Horse feita por Julia, mostrando todo seu talento para os palcos e colocando sua marca no refrão:
+"Meu nome é Julia!"
+
+A dona do hit, Katy Perry, veio ao Rock'n'Rio em 2015 e viu que sua música foi ressignificada no país dos memes, esse foi o resultado:
+
+["Meu nome é Julia" no show da Katy Perry](https://www.youtube.com/watch?v=7OhJFInMRFQ)
