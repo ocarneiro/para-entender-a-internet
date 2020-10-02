@@ -925,3 +925,11 @@ Tal qual um pombo comendo pipoca.
 Nada como forjar um bilhete para poder faltar às aulas, né? 
 
 ![É verdade esse bilete](https://imagens.canaltech.com.br/230945.463643-Os-melhores-memes-e-virais-do-ano.jpg)
+
+## Coelce Natália
+
+Coelce, Natália, boa tarde! Por gentileza, com quem eu falo?
+Minha querida, não tem negócio de “boa tarde”, não! Seguinte é esse…
+
+[![Coelce Natalia](https://i.ytimg.com/vi/37K4lR1Xy0I/maxresdefault.jpg)](https://www.youtube.com/watch?v=37K4lR1Xy0I)
+
