@@ -925,3 +925,8 @@ Tal qual um pombo comendo pipoca.
 Nada como forjar um bilhete para poder faltar às aulas, né? 
 
 ![É verdade esse bilete](https://imagens.canaltech.com.br/230945.463643-Os-melhores-memes-e-virais-do-ano.jpg)
+
+## Tava tudo meio médio, agora tá tudo meio merda
+Jéssica define o sentimento de todos nós ao responder Xuxa.
+
+![Tava tudo meio médio, agora tá tudo meio merda - Porta dos Fundos](https://media.giphy.com/media/3oEjHJmyNtauzEtv3i/giphy.gif)
