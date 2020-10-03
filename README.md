@@ -925,3 +925,9 @@ Tal qual um pombo comendo pipoca.
 Nada como forjar um bilhete para poder faltar às aulas, né? 
 
 ![É verdade esse bilete](https://imagens.canaltech.com.br/230945.463643-Os-melhores-memes-e-virais-do-ano.jpg)
+
+## Faustão e Selena Gomez
+
+A fanfic e história de amor mais shippada da internet.
+
+![Faustão e Selena Gomez](https://conteudo.imguol.com.br/c/entretenimento/a9/2018/11/07/faustao-e-selena-gomez-1541622671105_v2_900x506.jpg)
