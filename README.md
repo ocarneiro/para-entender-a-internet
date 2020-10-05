@@ -925,3 +925,16 @@ Tal qual um pombo comendo pipoca.
 Nada como forjar um bilhete para poder faltar às aulas, né? 
 
 ![É verdade esse bilete](https://imagens.canaltech.com.br/230945.463643-Os-melhores-memes-e-virais-do-ano.jpg)
+
+
+
+
+## kk Amada?
+
+Em entrevista Johny Hooker e fafá de Belém, Fafá solta uma expressão " Amada??? " como se nãoconfirmasse o que ele falava.
+
+![Amada???](https://pbs.twimg.com/media/D--LMDvXUAEWq67.jpg)
+
+
+
+
