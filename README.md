@@ -80,6 +80,12 @@ A modelo Adriana Lima foi entrevistada e enviou o beijinho mais famoso da intern
 ## Sou Faraó
 [![Sou Faraó?](https://i.makeagif.com/media/5-03-2015/Uj2PP0.gif)](https://www.youtube.com/watch?v=n0-HLCrRGHo)
 
+## Aretuza Lovi - I Love You Corote
+
+Aretuza Lovi performando sua música I Love You Corote numa live patrocinada pela Amstel
+
+[![Aretuza Lovi - I Love You Corote](https://media1.tenor.com/images/f9d10926a5feeaa5c4498da5ea9bd126/tenor.gif?itemid=18592358)](https://www.youtube.com/watch?v=xxyCAxh0_Ok&ab&ab_channel=stressedboy13)
+
 ## Você acredita em simpatia?
 
 [![Entrevista: Você acredita em simpatia?](https://www.google.com/search?q=meme+voc%C3%AA+acredita+em+simpatia&source=lnms&tbm=isch&sa=X&ved=0ahUKEwjJj-jCr7HeAhXBE5AKHbSjDJkQ_AUIDigB&biw=1366&bih=626#imgrc=dBOfdP0Q6_z8iM:](https://www.youtube.com/watch?v=WD2PZ5AGt58)
