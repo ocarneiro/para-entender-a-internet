@@ -926,8 +926,29 @@ Nada como forjar um bilhete para poder faltar às aulas, né?
 
 ![É verdade esse bilete](https://imagens.canaltech.com.br/230945.463643-Os-melhores-memes-e-virais-do-ano.jpg)
 
+
 ## Trava na beleza
 
 Como reagir com um:Trava na beleza, trava na beleza...Destrava? Faz pose de maloqueira!
 
 [![pose de bandida](https://pbs.twimg.com/media/EbCnI3DX0AA9Id3.jpg)](https://www.instagram.com/p/CBmBx3LHz9c/?utm_source=ig_embed&utm_campaign=embed_video_watch_again)
+
+
+## Tava tudo meio médio, agora tá tudo meio merda
+Jéssica define o sentimento de todos nós ao responder Xuxa.
+
+![Tava tudo meio médio, agora tá tudo meio merda - Porta dos Fundos](https://media.giphy.com/media/3oEjHJmyNtauzEtv3i/giphy.gif)
+
+
+## Jojo Todynho Pepita
+
+Na edicão de 2020 do programa A Fazenda, Jojo Todynho mitou como a rainha dos memes... Eis aqui a atualizacão do meme da Pepita na versão Todynho:
+
+[![JojoPepita](https://pbs.twimg.com/media/Ei-G_x8XYAE-uDo?format=jpg&name=360x360)](https://twitter.com/Elder_Dell/status/1310414450806132736)
+
+
+## Elza Soares OTAKU
+
+Sim minha gente, a rainha icone da musica pupular brasileira, Elza Soares se descobriu OTAKU em pleno 2020. Segue o twitter dela de Luffy (OnePiece):
+
+[![ElzaOtaku](https://i.ytimg.com/vi/OWM6u35dvvc/hqdefault.jpg)](https://www.youtube.com/watch?v=OWM6u35dvvc)
