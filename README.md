@@ -927,6 +927,13 @@ Nada como forjar um bilhete para poder faltar às aulas, né?
 ![É verdade esse bilete](https://imagens.canaltech.com.br/230945.463643-Os-melhores-memes-e-virais-do-ano.jpg)
 
 
+## Jojo Todynho Pepita
+
+Na edicão de 2020 do programa A Fazenda, Jojo Todynho mitou como a rainha dos memes... Eis aqui a atualizacão do meme da Pepita na versão Todynho:
+
+[![JojoPepita](https://pbs.twimg.com/media/Ei-G_x8XYAE-uDo?format=jpg&name=360x360)](https://twitter.com/Elder_Dell/status/1310414450806132736)
+
+
 ## Elza Soares OTAKU
 
 Sim minha gente, a rainha icone da musica pupular brasileira, Elza Soares se descobriu OTAKU em pleno 2020. Segue o twitter dela de Luffy (OnePiece):
