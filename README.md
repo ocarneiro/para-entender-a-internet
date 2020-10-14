@@ -927,6 +927,13 @@ Nada como forjar um bilhete para poder faltar às aulas, né?
 ![É verdade esse bilete](https://imagens.canaltech.com.br/230945.463643-Os-melhores-memes-e-virais-do-ano.jpg)
 
 
+## Trava na beleza
+
+Como reagir com um:Trava na beleza, trava na beleza...Destrava? Faz pose de maloqueira!
+
+[![pose de bandida](https://pbs.twimg.com/media/EbCnI3DX0AA9Id3.jpg)](https://www.instagram.com/p/CBmBx3LHz9c/?utm_source=ig_embed&utm_campaign=embed_video_watch_again)
+
+
 ## Tava tudo meio médio, agora tá tudo meio merda
 Jéssica define o sentimento de todos nós ao responder Xuxa.
 
