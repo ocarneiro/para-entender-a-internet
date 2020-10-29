@@ -890,3 +890,71 @@ O video é antigo, remonta o ano de 2007, um jovem morador de rua decide jogar u
 O cara acorda 4:15 da manhã e percebe que sua vida não serve de nada!
 
 [![Carai eu sou um merda mermão](https://pbs.twimg.com/media/DGalt1bXsAA5ypw.jpg)](https://www.youtube.com/watch?v=XhtOyiC_rBE)
+
+## Hoje é dia de rock bebê
+
+Frase icônica dita pela Christiane Torloni no rock in rio durante uma entrevista sem pé nem cabeça.
+
+[![dia-de-rock](https://www.museudememes.com.br/wp-content/uploads/2015/09/rock.gif)](https://www.youtube.com/watch?v=plbvop6J6hQ)
+
+## Bêbada de Curitiba (in memoriam)
+
+O estado de espírito do brasileiro. "Tô triste, eu não tô feliz, chorei bastante já". 
+
+[![Bêbada de Curitiba](https://i.pinimg.com/736x/1b/4c/e6/1b4ce6af09ce4b5e4d654a14a4f9009f.jpg)](https://www.youtube.com/watch?v=56NDbZl9yMU)
+
+## Mas cê ta brava?
+
+Não se pergunta a quem está bravo se a pessoa está brava! "Mas cê ta brava?"
+
+[![Mas cê ta brava?](https://pbs.twimg.com/media/D3QK-NeW0Agm_yB.png)](https://www.youtube.com/watch?v=UNNuUSkIiQE)
+
+## DJ para o som!
+
+Pabllo Vittar explica (com frases icônicas) como ela lida com brigas em seus shows. 
+"A gente quer se divertir!"
+
+[![DJ para o som](https://i.ibb.co/Vphxn5D/Meme-pabllo.png)](https://www.youtube.com/watch?v=cimiVGZqHZ8) 
+
+
+## Bolsonaro, o presidente atleta...
+
+Bozo, que disse que não ficaria doente pois tem histórico de atleta, mostra todo seu potencial nesses exercícios de flexões de solo.
+ 
+Tal qual um pombo comendo pipoca.
+
+[![1, 2, 3](https://media1.tenor.com/images/7fbba733ef6b3be90953818e4b266a44/tenor.gif?itemid=9851695)](https://www.youtube.com/watch?v=xN64YbeVfng) 
+
+
+## É verdade esse bilete
+
+Nada como forjar um bilhete para poder faltar às aulas, né? 
+
+![É verdade esse bilete](https://imagens.canaltech.com.br/230945.463643-Os-melhores-memes-e-virais-do-ano.jpg)
+
+
+## Trava na beleza
+
+Como reagir com um:Trava na beleza, trava na beleza...Destrava? Faz pose de maloqueira!
+
+[![pose de bandida](https://pbs.twimg.com/media/EbCnI3DX0AA9Id3.jpg)](https://www.instagram.com/p/CBmBx3LHz9c/?utm_source=ig_embed&utm_campaign=embed_video_watch_again)
+
+
+## Tava tudo meio médio, agora tá tudo meio merda
+Jéssica define o sentimento de todos nós ao responder Xuxa.
+
+![Tava tudo meio médio, agora tá tudo meio merda - Porta dos Fundos](https://media.giphy.com/media/3oEjHJmyNtauzEtv3i/giphy.gif)
+
+
+## Jojo Todynho Pepita
+
+Na edicão de 2020 do programa A Fazenda, Jojo Todynho mitou como a rainha dos memes... Eis aqui a atualizacão do meme da Pepita na versão Todynho:
+
+[![JojoPepita](https://pbs.twimg.com/media/Ei-G_x8XYAE-uDo?format=jpg&name=360x360)](https://twitter.com/Elder_Dell/status/1310414450806132736)
+
+
+## Elza Soares OTAKU
+
+Sim minha gente, a rainha icone da musica pupular brasileira, Elza Soares se descobriu OTAKU em pleno 2020. Segue o twitter dela de Luffy (OnePiece):
+
+[![ElzaOtaku](https://i.ytimg.com/vi/OWM6u35dvvc/hqdefault.jpg)](https://www.youtube.com/watch?v=OWM6u35dvvc)
