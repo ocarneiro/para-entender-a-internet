@@ -952,3 +952,10 @@ Na edicão de 2020 do programa A Fazenda, Jojo Todynho mitou como a rainha dos m
 Sim minha gente, a rainha icone da musica pupular brasileira, Elza Soares se descobriu OTAKU em pleno 2020. Segue o twitter dela de Luffy (OnePiece):
 
 [![ElzaOtaku](https://i.ytimg.com/vi/OWM6u35dvvc/hqdefault.jpg)](https://www.youtube.com/watch?v=OWM6u35dvvc)
+
+## Opa, derrubei meu cu... meu... meu... tablet
+
+Em plena entrevista ao vivo, a apresentadora Cristina Ranzolin se confunde e acaba virando meme:
+
+[![Derrubei meu cu](https://www.ahnegao.com.br/wp-content/uploads/2019/08/3.jpg)](https://www.youtube.com/watch?v=RavZyzr--AQ)
+
