@@ -952,3 +952,11 @@ Na edicão de 2020 do programa A Fazenda, Jojo Todynho mitou como a rainha dos m
 Sim minha gente, a rainha icone da musica pupular brasileira, Elza Soares se descobriu OTAKU em pleno 2020. Segue o twitter dela de Luffy (OnePiece):
 
 [![ElzaOtaku](https://i.ytimg.com/vi/OWM6u35dvvc/hqdefault.jpg)](https://www.youtube.com/watch?v=OWM6u35dvvc)
+
+
+## Não sou capaz de opinar
+
+Como não recordar e rir com a participação da Gloria Pires na apresentação que a Rede Globo transmitiu do Oscar 2016. A atriz não tinha visto todos os filmes, ainda assim, foi escalada para comentar a cerimônia de premiação e acabou se tornando meme na internet com seus comentários ora lacônicos, ora sinceros demais.
+
+![Gloria Pires](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRiTvZR8QSxZ24n2oStoddRkzJdx028MV_idA&usqp=CAU)
+
