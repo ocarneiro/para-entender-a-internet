@@ -952,3 +952,9 @@ Na edicão de 2020 do programa A Fazenda, Jojo Todynho mitou como a rainha dos m
 Sim minha gente, a rainha icone da musica pupular brasileira, Elza Soares se descobriu OTAKU em pleno 2020. Segue o twitter dela de Luffy (OnePiece):
 
 [![ElzaOtaku](https://i.ytimg.com/vi/OWM6u35dvvc/hqdefault.jpg)](https://www.youtube.com/watch?v=OWM6u35dvvc)
+
+## Todo Nicolas Cagezinho
+
+Esse é o principal meme do ícone Dianho.
+
+[![NicolasCagezinho](https://i.ytimg.com/vi/ys4vzISoMp8/maxresdefault.jpg)](https://www.youtube.com/watch?v=m3J0r--l-9w)
