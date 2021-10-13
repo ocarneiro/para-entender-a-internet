@@ -67,6 +67,8 @@ Se te convidarem para jantar e tomar um vinho, cuidado, Marilene!
 
 [![Siga_em_Frente](https://www.fatosdesconhecidos.com.br/wp-content/uploads/2016/04/2cncoxk.gif)](https://www.youtube.com/watch?v=tmJ0tzAZ4aM)
 
+Uma das grandes contribuições do grupo ao mundo foi o vídeo cover de [One Way Trigger de The Strokes](https://www.youtube.com/watch?v=reifFcUoTKw), que tem mais visualizações que o vídeo oficial da música hoje (outubro de 2021).
+
 ## Adriana Lima
 
 A modelo Adriana Lima foi entrevistada e enviou o beijinho mais famoso da internet
