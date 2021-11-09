@@ -289,6 +289,12 @@ Nunca fale uma coisa idiota perto do Caetano!
 [![Como você é burro cara!](https://media.giphy.com/media/uZfADsbOw4Dcs/giphy.gif)](https://www.youtube.com/watch?v=lOxSDaTfujU)
 
 
+## Por que você não amadurece?
+
+O meme surge no dia 29/12/2015 em um tweet do usuário dimitri (@boudelaires). Ele posta um diálogo no qual alguém pergunta “Por que você não amadurece??” e a pessoa perguntada responde “pir qui vici ni amidirici??”, 
+
+[![Por que você não amadurece?](http://www.museudememes.com.br/wp-content/uploads/2017/09/nasce-o-mostro-1-600x600.png)](https://www.youtube.com/watch?v=cJWfgH6VaL4)
+
 ## Para noossssaaaa alegriaaa!!!
 
 Nos galhos secos de uma árvore qualquer!
